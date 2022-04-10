@@ -82,35 +82,35 @@ Thye dan Langsi memahami perasaan Tiger. Tiger menitiskan air mata di hadapan Th
 Thye dan Langsi beredar dari situ meninggalkan Tiger sendirian.
 
 Bab 2
-Poison yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga ketua kumpulan kongsi gelap Kuda Padi sedang meraikan kejayaan kumpulan di rumah agam miliknya. Poison sedikit mabuk pada malam itu.
-“Manyak syok ooo ini malam. Hati manyak senang. Ini dinamakan rahmat Tuhan.” Poison berkata kepada konco-konconya.
-“Dragon! Come here!” Poison memanggil Dragon sambil menggamit kepadanya.
-“Tailong.” Dragon yang merupakan seorang lelaki berbangsa Cina berdiri di hadapan Poison dengan penuh hormat. Dragon berkemeja merah.
-“Favourite colour you memang warna merah ke?” Poison bertanya kepada Dragon.
-“Merah tanda keberanian.” Dragon menjawab pertanyaan Poison.
-“Bagus. Disebabkan hang berani, aku nak naikkan rank hang. Mulai hari ni, hang jadi orang kanan aku. Lagipun, tu bukti kesetiaan dan keberanian hang.” Poison berkata kepada Dragon sambil menuding jari ke arah kepala Kong yang telah diawet dan diletakkan di atas dulang di atas sebuah meja. Dragon menganggukkan kepalanya tanda setuju.
-Syifa yang merupakan seorang perempuan lingkungan 30-an memasuki ruangan itu dan terus menghadap Poison dengan penuh rasa hormat. Kulit Syifa yang mulus dengan paras rupa seakan-akan orang Amerika Syarikat, berdarah kacukan Amerika Syarikat dan Melayu Malaysia, Syifa sememangnya mampu menarik perhatian sesiapa sahaja. Syifa mengangkat botol arak yang ada pada meja yang diduduki Poison dan dituangkan airnya ke dalam gelas Poison.
-“Bos, malam ni bos nak berapa round?” Syifa bertanya kepada Poison.
-“Lima round. Aku tengok hang pun aku tak tahan ni.” Poison menjawab pertanyaan Syifa.
-Syifa mendekati Poison dan kemudiannya dia duduk di atas riba Poison. Syifa menjilat pipi Poison. Poison tersenyum.
-“Wangi sungguh badan hang ni.” Poison memuji Syifa.
-Season yang merupakan seorang lelaki berusia lapan belas dan juga anak kandung Poison memasuki ruangan itu. Season kecewa melihat bapanya, Poison, sedang berfoya-foya dengan Syifa.
+Peter yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga ketua kumpulan kongsi gelap Kuda Padi sedang meraikan kejayaan kumpulan di rumah agam miliknya. Peter sedikit mabuk pada malam itu.
+“Manyak syok ooo ini malam. Hati manyak senang. Ini dinamakan rahmat Tuhan.” Peter berkata kepada konco-konconya.
+“Dragon! Come here!” Peter memanggil Dragon sambil menggamit kepadanya.
+“Tailong.” Dragon yang merupakan seorang lelaki berbangsa Cina berdiri di hadapan Peter dengan penuh hormat. Dragon berkemeja merah.
+“Favourite colour you memang warna merah ke?” Peter bertanya kepada Dragon.
+“Merah tanda keberanian.” Dragon menjawab pertanyaan Peter.
+“Bagus. Disebabkan hang berani, aku nak naikkan rank hang. Mulai hari ni, hang jadi orang kanan aku. Lagipun, tu bukti kesetiaan dan keberanian hang.” Peter berkata kepada Dragon sambil menuding jari ke arah kepala Kong yang telah diawet dan diletakkan di atas dulang di atas sebuah meja. Dragon menganggukkan kepalanya tanda setuju.
+Syifa yang merupakan seorang perempuan lingkungan 30-an memasuki ruangan itu dan terus menghadap Peter dengan penuh rasa hormat. Kulit Syifa yang mulus dengan paras rupa seakan-akan orang Amerika Syarikat, berdarah kacukan Amerika Syarikat dan Melayu Malaysia, Syifa sememangnya mampu menarik perhatian sesiapa sahaja. Syifa mengangkat botol arak yang ada pada meja yang diduduki Peter dan dituangkan airnya ke dalam gelas Peter.
+“Bos, malam ni bos nak berapa round?” Syifa bertanya kepada Peter.
+“Lima round. Aku tengok hang pun aku tak tahan ni.” Peter menjawab pertanyaan Syifa.
+Syifa mendekati Peter dan kemudiannya dia duduk di atas riba Peter. Syifa menjilat pipi Peter. Peter tersenyum.
+“Wangi sungguh badan hang ni.” Peter memuji Syifa.
+Season yang merupakan seorang lelaki berusia lapan belas dan juga anak kandung Peter memasuki ruangan itu. Season kecewa melihat bapanya, Peter, sedang berfoya-foya dengan Syifa.
 “Kalaulah emak masih ada.” Season berkata dalam hati.
-“Season, anakku. Sini.” Poison memanggil Season sambil mengarahkan Syifa untuk bangun dari atas ribanya. Season berjalan menghampiri Poison.
-“Kenapa muram ja muka kamu ni?” Poison bertanya kepada Season.
-“Takda apa.” Season menjawab soalan Poison dan mencuba untuk menyembunyikan rasa marah yang mendalam terhadap tingkah-laku Poison.
-“Abah nak bagi hang sebuah kereta mewah. Hang pilih. Nak Lamborghini atau Ferrari.” Poison berkata kepada Season.
+“Season, anakku. Sini.” Peter memanggil Season sambil mengarahkan Syifa untuk bangun dari atas ribanya. Season berjalan menghampiri Peter.
+“Kenapa muram ja muka kamu ni?” Peter bertanya kepada Season.
+“Takda apa.” Season menjawab soalan Peter dan mencuba untuk menyembunyikan rasa marah yang mendalam terhadap tingkah-laku Peter.
+“Abah nak bagi hang sebuah kereta mewah. Hang pilih. Nak Lamborghini atau Ferrari.” Peter berkata kepada Season.
 “Nak jugak!” Syifa mencelah.
 “Sebok je la bohsia ni.” Season berkata dalam hati.
-“Come on, my son. Katakan padaku apa pilihanmu.” Poison mencuba untuk menceriakan keadaan.
-“Mana yang terbaik di mata abah, yang tu la jadi pilihan saya.” Season menjawab pertanyaan Poison itu tadi.
-“Baik. Kita “angkat” Lamborghini. Kamu suka warna biru, kan? Kita ambil biru.” Poison berkata kepada Season.
-“Dragon, sok you “angkat” Lamborghini biru bawak mai kat aku.” Poison berkata kepada Dragon.
-“Baik, bos.” Dragon berkata kepada Poison.
-“Hang nak pesta ngan kawan-kawan hang, gitau la. Aku bagi 50k untuk hang. Hang kasi abeh semua.” Poison mengeluarkan sebungkus wang bernilai RM50 ribu dari bawah meja dan diletakkan di atas mejanya.
-“Nah, amek.” Poison memberikannya kepada Season.
-“Thanks.” Season mengambilnya dan berterima kasih kepada Poison.
-“Jom, darling.” Syifa menarik tangan Poison untuk “bersama” dengannya. Poison bangun dari duduk dan mengekori Syifa ke kamar Syifa. Season berasa marah. Tetapi, terpaksa menahan sabar.
+“Come on, my son. Katakan padaku apa pilihanmu.” Peter mencuba untuk menceriakan keadaan.
+“Mana yang terbaik di mata abah, yang tu la jadi pilihan saya.” Season menjawab pertanyaan Peter itu tadi.
+“Baik. Kita “angkat” Lamborghini. Kamu suka warna biru, kan? Kita ambil biru.” Peter berkata kepada Season.
+“Dragon, sok you “angkat” Lamborghini biru bawak mai kat aku.” Peter berkata kepada Dragon.
+“Baik, bos.” Dragon berkata kepada Peter.
+“Hang nak pesta ngan kawan-kawan hang, gitau la. Aku bagi 50k untuk hang. Hang kasi abeh semua.” Peter mengeluarkan sebungkus wang bernilai RM50 ribu dari bawah meja dan diletakkan di atas mejanya.
+“Nah, amek.” Peter memberikannya kepada Season.
+“Thanks.” Season mengambilnya dan berterima kasih kepada Peter.
+“Jom, darling.” Syifa menarik tangan Peter untuk “bersama” dengannya. Peter bangun dari duduk dan mengekori Syifa ke kamar Syifa. Season berasa marah. Tetapi, terpaksa menahan sabar.
 “You kena manyak sabar.” Dragon berkata kepada Season. Season membawa wang itu keluar dari ruangan itu tanpa sebarang kata. Dragon hanya memerhatikan Season dengan wajah yang kasihan.
 Season berjalan memasuki ke sebuah kompleks membeli-belah. Dia terus ke bahagian permainan. Dia bermain permainan video kereta di situ.
 “Dah la tu. Kami nak main gak.” Aswad yang merupakan seorang remaja lapan belas tahun menyakitkan hati Season.
@@ -122,17 +122,17 @@ Season berjalan memasuki ke sebuah kompleks membeli-belah. Dia terus ke bahagian
 “Kalau tak berlagak berani, tak boleh ke?” Dragon bertanya kepada Season untuk Season berfikir. Season tidak mempedulikan Dragon.
 “Bapak hang soh aku jaga hang. Kalau tak, aku pun tak peduli. Dah. Jom balik.”Dragon berkata kepada Season. Season tidak mengendahkan Dragon. Dragon mengangkat Season lantas membawa dia pulang ke rumah.
 Sebaik sahaja tiba di rumah, Season duduk di hadapan komputer ribanya yang berada di atas meja di dalam bilik tidurnya. Season berasa bosan dan mendengar lagu-lagu kegemarannya di situ.
-Tiba-tiba, kedengaran suara Syifa dan Poison sedang bergaduh di luar bilik Season. “Apasal you “main” bontot?!” Syifa menjerit dalam kekecewaan. “I suka. Mai sini. Sambung.” Poison berkata tanpa rasa bersalah. Kemudian, suasana menjadi sepi.
-Keesokan harinya, kereta Lamborghini Gallador megah diletakkan di parkir rumah agam itu. Season keluar rumah untuk bersenam. Poison menjerit dari tingkat atas rumah itu. “My son! Look at your car!” Poison berkata kepada Season.
-Season memandang kereta itu tanpa sebarang perasaan teruja. Dia langsung tidak berminat dengan hadiah itu. “Peduli apa aku?” Season bermonolog. Poison hairan melihat Season. Syifa dalam keadaan berkemban dengan tuala, memeluk badan Poison dari belakang. “I love you, darling.” Syifa berkata kepada Poison.
-Season bersenam selama sepuluh minit di halaman rumah. Poison dan Syifa menyedut kokain di beranda sambil menikmati jus oren yang disediakan oleh Dragon. Dragon berdiri di suatu sudut di beranda sambil memerhatikan gelagat Poison dan Syifa. Kadang-kala, Dragon memerhatikan Season. Kaca mata hitam mengaburi pandangan Dragon. Tiada siapa yang tahu apa dan siapa yang sedang Dragon perhatikan.
-“Hang tau kenapa aku “main belakang” hang?” Poison berkata kepada Syifa. Syifa memandang wajah Poison dengan perasaan marah.
-“Sebab aku tak nak ada anak lagi. Macam anak haram aku yang kat bawah tu. Tak mengenal dek untung.” Poison berkata dalam keadaan marah dan khayal. Dragon sekadar memerhati dengan rasa menyampah.
-Season keluar dari rumah untuk berjoging. Season tidak dengar kata-kata Poison. Maka, dia tidak tahu apa-apa. Dragon memandang Poison. “Season keluar. Joging.” Dragon memberikan maklumat itu kepada Poison. “Ikut dia.” Poison mengarahkan Dragon mengawasi Season. Dragon melangkah pergi mengekori Season dan meninggalkan Poison dan Syifa di situ.
-“You rasa, Dragon tu boleh caya ka?” Poison bertanya kepada Syifa.
-“I don’t know. “Anjing, you, kan?” Syifa menjawab pertanyaan Poison sambil membetulkan rambut. Poison berfikir sejenak.
-“Jom, macam semalam.” Syifa berkata kepada Poison.
-“Ingat tak suka. Jom.” Poison berdiri dan menarik tangan Syifa untuk masuk ke dalam bilik tidurnya.
+Tiba-tiba, kedengaran suara Syifa dan Peter sedang bergaduh di luar bilik Season. “Apasal you “main” bontot?!” Syifa menjerit dalam kekecewaan. “I suka. Mai sini. Sambung.” Peter berkata tanpa rasa bersalah. Kemudian, suasana menjadi sepi.
+Keesokan harinya, kereta Lamborghini Gallador megah diletakkan di parkir rumah agam itu. Season keluar rumah untuk bersenam. Peter menjerit dari tingkat atas rumah itu. “My son! Look at your car!” Peter berkata kepada Season.
+Season memandang kereta itu tanpa sebarang perasaan teruja. Dia langsung tidak berminat dengan hadiah itu. “Peduli apa aku?” Season bermonolog. Peter hairan melihat Season. Syifa dalam keadaan berkemban dengan tuala, memeluk badan Peter dari belakang. “I love you, darling.” Syifa berkata kepada Peter.
+Season bersenam selama sepuluh minit di halaman rumah. Peter dan Syifa menyedut kokain di beranda sambil menikmati jus oren yang disediakan oleh Dragon. Dragon berdiri di suatu sudut di beranda sambil memerhatikan gelagat Peter dan Syifa. Kadang-kala, Dragon memerhatikan Season. Kaca mata hitam mengaburi pandangan Dragon. Tiada siapa yang tahu apa dan siapa yang sedang Dragon perhatikan.
+“Hang tau kenapa aku “main belakang” hang?” Peter berkata kepada Syifa. Syifa memandang wajah Peter dengan perasaan marah.
+“Sebab aku tak nak ada anak lagi. Macam anak haram aku yang kat bawah tu. Tak mengenal dek untung.” Peter berkata dalam keadaan marah dan khayal. Dragon sekadar memerhati dengan rasa menyampah.
+Season keluar dari rumah untuk berjoging. Season tidak dengar kata-kata Peter. Maka, dia tidak tahu apa-apa. Dragon memandang Peter. “Season keluar. Joging.” Dragon memberikan maklumat itu kepada Peter. “Ikut dia.” Peter mengarahkan Dragon mengawasi Season. Dragon melangkah pergi mengekori Season dan meninggalkan Peter dan Syifa di situ.
+“You rasa, Dragon tu boleh caya ka?” Peter bertanya kepada Syifa.
+“I don’t know. “Anjing, you, kan?” Syifa menjawab pertanyaan Peter sambil membetulkan rambut. Peter berfikir sejenak.
+“Jom, macam semalam.” Syifa berkata kepada Peter.
+“Ingat tak suka. Jom.” Peter berdiri dan menarik tangan Syifa untuk masuk ke dalam bilik tidurnya.
 Season berjoging di taman tasik berhampiran rumahnya. Dragon mengekori Season dari jauh. Dragon berasa bosan dengan kerjanya itu. Tetapi, dia perlu melakukannya kerana dibayar untuk berbuat sedemikian.
 “Haiya. Manyak susah la ini budak. Dok rumah kan senang.” Dragon merungut sendirian.
 Tiba-tiba, datang seorang lelaki berbadan sasa, berbaju tanpa lengan dan lengannya bertatu, menghampiri Season. Dragon berasa curiga melihatnya. Season masih berjoging. Lelaki berbadan sasa itu kemudian menarik lehernya dan dikepit dengan lengannya.
@@ -146,24 +146,24 @@ Tiba-tiba, datang seorang lelaki berbadan sasa, berbaju tanpa lengan dan lengann
 “Bukan.. C.A.O. Cao.” Lan Cao berkata kepada Dragon.
 “Nama dengan muka sama ja.” Dragon berkata kepada Lan Cao sambil melepaskan Lan Cao. “Nah duit.” Dragon berkata sambil mengeluarkan wang berjumlah RM50 dari dalam dompetnya.
 “Terima kasih.” Lan Cao mengambil duit itu sambil beredar dari situ dalam keadaan takut. “Nasib baik takda orang upah aku bunuh hang. Kalau tak, mati dah.” Dragon bermonolog. Dragon membawa Season pulang ke rumah.
-Poison duduk di ruang tamu rumah itu sambil bercakap dengan tukang tilik, Samjisan berpakaian seakan-akan sami Buddha, orang Siam yang handal dalam ilmu tilik nasib. Bau kemenyan menyelubungi rumah itu.
-“Mu baka kena bunuh, deh.” Samjisan berkata kepada Poison.
-“Bunuh? Siapa?” Poison berkata kepada Samjisan.
-“Dio bertopen.” Samjisan menjawab pertanyaan Poison.
-“Tak buleh scan ka?” Poison bertanya kepada Samjisan.
-“Dok buleh.” Samjisan berkata kepada Poison.
-“Hang kata hang dahsyat!” Poison naik berang. Poison bangun dari duduk dan mengambil tekpi di dinding.
-“Nak aku tanam dalam peghut hang?” Poison berkata kepada Samjisan.
-“Aku dok payoh senjato nok buleh bunuh mu. Dari jauh doh buleh.” Samjisan berkata kepada Poison. Poison terdiam dan berfikir sejenak. Poison duduk semula di tempatnya bersama tekpi itu.
-“Apa aku perlu buat?” Poison bertanya kepada Samjisan.
-“Mu paka tangka ni.” Samjisan menjawab pertanyaan Poison sambil mengeluarkan satu azimat dari dalam beg sandangnya. Poison memerhatikan tangkal itu dan mengambilnya, kemudiannya, menelitinya.
-“Untuk apa?” Poison bertanya kepada Samjisan.
-“Keba. Yang ni hok keba.” Samjisan menjawab pertanyaan Poison.
-“Keba? Kereta keba? Buleh taha pelughu?” Poison mengajuk Samjisan.
-“Mu ni. Mu cuba dulu.” Samjisan berkata kepada Poison.
-“Ini bukan percubaan. Ini nyawa!” Poison berkata kepada Samjisan. Samjisan berasa jemu dengan sikap Poison. Samjisan berangkat pulang.
-“Aku tak emboh duit mu.” Samjisan berkata kepada Poison sambil melangkah keluar dari situ.
-“Sok aku bank in. 50k.” Poison berkata kepada Samjisan sambil meneliti tangkal itu yang berwarna hitam seperti rantai leher. Samjisan tersenyum sambil keluar dari situ.
+Peter duduk di ruang tamu rumah itu sambil bercakap dengan tukang tilik, Samjisan berpakaian seakan-akan sami Buddha, orang Siam yang handal dalam ilmu tilik nasib. Bau kemenyan menyelubungi rumah itu.
+“Mu baka kena bunuh, deh.” Samjisan berkata kepada Peter.
+“Bunuh? Siapa?” Peter berkata kepada Samjisan.
+“Dio bertopen.” Samjisan menjawab pertanyaan Peter.
+“Tak buleh scan ka?” Peter bertanya kepada Samjisan.
+“Dok buleh.” Samjisan berkata kepada Peter.
+“Hang kata hang dahsyat!” Peter naik berang. Peter bangun dari duduk dan mengambil tekpi di dinding.
+“Nak aku tanam dalam peghut hang?” Peter berkata kepada Samjisan.
+“Aku dok payoh senjato nok buleh bunuh mu. Dari jauh doh buleh.” Samjisan berkata kepada Peter. Peter terdiam dan berfikir sejenak. Peter duduk semula di tempatnya bersama tekpi itu.
+“Apa aku perlu buat?” Peter bertanya kepada Samjisan.
+“Mu paka tangka ni.” Samjisan menjawab pertanyaan Peter sambil mengeluarkan satu azimat dari dalam beg sandangnya. Peter memerhatikan tangkal itu dan mengambilnya, kemudiannya, menelitinya.
+“Untuk apa?” Peter bertanya kepada Samjisan.
+“Keba. Yang ni hok keba.” Samjisan menjawab pertanyaan Peter.
+“Keba? Kereta keba? Buleh taha pelughu?” Peter mengajuk Samjisan.
+“Mu ni. Mu cuba dulu.” Samjisan berkata kepada Peter.
+“Ini bukan percubaan. Ini nyawa!” Peter berkata kepada Samjisan. Samjisan berasa jemu dengan sikap Peter. Samjisan berangkat pulang.
+“Aku tak emboh duit mu.” Samjisan berkata kepada Peter sambil melangkah keluar dari situ.
+“Sok aku bank in. 50k.” Peter berkata kepada Samjisan sambil meneliti tangkal itu yang berwarna hitam seperti rantai leher. Samjisan tersenyum sambil keluar dari situ.
 
 Bab 3
 Tiger dan Ghaz bertemu di rumah agam milik Tiger. Mereka berdiri di hadapan masing-masing. Tiger dengan rantai emasnya di leher berbatukan lambang naga di dadanya, meneliti tubuh Ghaz.
@@ -254,15 +254,15 @@ Keesokan harinya, Ghaz pergi ke kawasan jagaan Kuda Padi dengan memakai topeng w
 “Biasa aku cakap K.L., kan?” Ghaz mencuba untuk memastikan dialek yang digunakannya adalah betul.
 “Of course, bro.. You lahir kat Bukit Bintang.” Skin berkata kepada Ghaz. Skin masih tidak mengesyaki apa-apa. Ghaz membetulkan kamera yang ada pada bajunya yang disediakan dalam bentuk butung untuk menangkap wajah Skin dan perbualan mereka.
 “Okay, der… I love you, bro. Mane bos kite?” Ghaz mencuba untuk menyesuaikan diri dengan gaya Dragon.
-“Patut you lebih tawu. Emmm.. Dia kat rumah agam.” Skin berkata kepada Ghaz. Skin telah membocor rahsia Poison.
+“Patut you lebih tawu. Emmm.. Dia kat rumah agam.” Skin berkata kepada Ghaz. Skin telah membocor rahsia Peter.
 “Rumah Agam kat hujung tu?” Ghaz buat-buat bertanya sambil menunjukkan hujung jalan itu.
 “Bukan, Prince Court, bro.. Lu ni pelik la, bro.” Skin berkata kepada Ghaz.
 “Saje je wa test lu. Kot-kot lu stim ke pe.” Ghaz mencuba untuk memperbaiki kesilapannya.
 “Lu makin kurus la, bro.” Skin menegur Ghaz kerana dia berasa hairan.
-“Lu ni ade-ade je. Gua gerak lu.” Ghaz berkata kepada Skin sambil meninggalkan kawasan itu. Ghaz menuju ke Prince Court. Setibanya di sana, Ghaz menyelinap masuk ke rumah agam Kuda Padi. Ironinya, terdapat logo Kuda Padi pada rumah itu. Mudah untuk Ghaz mengecam rumahnya. Ghaz meneliti seluruh pelusuk rumah itu untuk mencari tempat bersembunyi, melarikan diri, dan untuk menjalankan misinya membunuh Poison. Ghaz dapat melihat pelbagai laluan rahsia, tempat bersembunyi yang strategik seperti di dalam perisai kesatria, sebalik almari dan sebalik dinding, tempat poison beriadah dan jumlah ahli Kuda Padi yang mengawasi rumah itu yang tidak lebih dari dua puluh orang. Ghaz dapat melihat Poison di dalam bilik khasnya. Ghaz tiba di suatu ruangan rahsia Kuda Padi. Tiba-tiba, Dragon masuk ke ruangan itu. Namun, Ghaz sempat bersembunyi di dalam almari. Ghaz memerhatikan Dragon yang sedang meneliti peralatan untuk merompak. Ghaz berasa risau kalau-kalau tertangkap. Kemudian, Dragon keluar dari ruangan itu. Ghaz meloloskan diri dari rumah agam itu. Setibanya di kawasan yang selamat, Ghaz menelefon Thye.
+“Lu ni ade-ade je. Gua gerak lu.” Ghaz berkata kepada Skin sambil meninggalkan kawasan itu. Ghaz menuju ke Prince Court. Setibanya di sana, Ghaz menyelinap masuk ke rumah agam Kuda Padi. Ironinya, terdapat logo Kuda Padi pada rumah itu. Mudah untuk Ghaz mengecam rumahnya. Ghaz meneliti seluruh pelusuk rumah itu untuk mencari tempat bersembunyi, melarikan diri, dan untuk menjalankan misinya membunuh Peter. Ghaz dapat melihat pelbagai laluan rahsia, tempat bersembunyi yang strategik seperti di dalam perisai kesatria, sebalik almari dan sebalik dinding, tempat poison beriadah dan jumlah ahli Kuda Padi yang mengawasi rumah itu yang tidak lebih dari dua puluh orang. Ghaz dapat melihat Peter di dalam bilik khasnya. Ghaz tiba di suatu ruangan rahsia Kuda Padi. Tiba-tiba, Dragon masuk ke ruangan itu. Namun, Ghaz sempat bersembunyi di dalam almari. Ghaz memerhatikan Dragon yang sedang meneliti peralatan untuk merompak. Ghaz berasa risau kalau-kalau tertangkap. Kemudian, Dragon keluar dari ruangan itu. Ghaz meloloskan diri dari rumah agam itu. Setibanya di kawasan yang selamat, Ghaz menelefon Thye.
 “Okey, Aku dah risik semua. Line clear. Aku akan buat secepat mungkin.” Ghaz berkata kepada Thye.
 “Roger that.” Thye berkata kepada Ghaz melalui telefon. Thye menamatkan panggilan. Ghaz berasa berpuas hati dengan hasil penyamaran dan perisikannya.
 
 Bab 4
-Ghaz sedang meneliti pelan rumah Poison. “Kalau lalu sini, memang susah. Tapi, banyak tempat persembunyian. Kalau ikut jalan kedua. Mampoi ooo.” Ghaz bermonolog.
+Ghaz sedang meneliti pelan rumah Peter. “Kalau lalu sini, memang susah. Tapi, banyak tempat persembunyian. Kalau ikut jalan kedua. Mampoi ooo.” Ghaz bermonolog.
 Ghaz berfikir sejenak sambil menggaru kepala. “Pening camni. Aku nak buat macam mana sebenaqnya?” Ghaz berkata dalam hati.

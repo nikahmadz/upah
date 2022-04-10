@@ -8,12 +8,12 @@ title: Clips | Upahan
 # Clips
 
 ## LOGLINE
-- Gee yang diperangkap Tiger kerana tidak membunuh sasarannya berjaya melepaskan diri dan membuktikan dirinya tidak bersalah.
-- Gee yang mahu melepaskan dirinya dari perangkap Tiger kerana tidak membunuh sasarannya berjaya membuktikan dirinya tidak bersalah.
+- Gan yang diperangkap Tiger kerana tidak membunuh sasarannya berjaya melepaskan diri dan membuktikan dirinya tidak bersalah.
+- Gan yang mahu melepaskan dirinya dari perangkap Tiger kerana tidak membunuh sasarannya berjaya membuktikan dirinya tidak bersalah.
 
-- Gee tidak boleh kemana-mana kerana sentiasa dalam pengawasan pihak berkuasa.  Gee berusaha gigih untuk keluar dari pehatian penguasa serta cengkaman ahli-ahli kumpulan Bintang Merah.  Gee perlu mengalihkan perhatian pihak berkuasa
+- Gan tidak boleh kemana-mana kerana sentiasa dalam pengawasan pihak berkuasa.  Gan berusaha gigih untuk keluar dari pehatian penguasa serta cengkaman ahli-ahli kumpulan Bintang Merah.  Gan perlu mengalihkan perhatian pihak berkuasa
 
-- Gee menuntut bela di atas kematian anak ketua kongsi gelap Kuda Besi.
+- Gan menuntut bela di atas kematian anak ketua kongsi gelap Kuda Besi.
 
 
 ***
