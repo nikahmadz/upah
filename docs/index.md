@@ -3,7 +3,8 @@ title: Upah
 author: Fadhli Wahab
 show_title: false
 ---
-<div class="hero my-6 py-6 text-center text-green">{{ page.title }}</div>
+<div class="text-right">{% github_edit_link "Edit" %}</div>
+<div class="hero my-6 py-6 text-center">{{ page.title }}</div>
 
 ```yml
 Judul: {{ page.title }}  
