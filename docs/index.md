@@ -3,7 +3,6 @@ title: Upah
 author: Fadhli Wahab
 show_title: false
 ---
-<div class="text-right">{% github_edit_link "Edit" %}</div>
 <div class="hero my-6 py-6 text-center">{{ page.title }}</div>
 
 ```yml
@@ -65,6 +64,8 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 > TAMAT
 {: .bg-secondary.text-grey.text-center.m-0 }
 
+<div style="margin-top:4rem"></div>
+
 
 ## WATAK-WATAK UTAMA
 
@@ -76,6 +77,8 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 
 - **Malik** - (_Borhan Malik_) - bertugas sebagai ketua perisik APN, rakan setugas Salina.  Dia merupakan pegawai yang tidak amanah, banyak terlibat dalam rasuah dan salah guna kuasa.  Mempunyai hubungan dalam dengan kes-kes jenayah berat yang melibatkan kumpulan-kumpulan kongsi gelap.
 
+
+<div style="margin-top:4rem"></div>
 
 ## WATAK-WATAK SAMPINGAN
 
@@ -105,6 +108,6 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 .markdown-body h3{ color:seagreen }
 .markdown-body p{ text-indent:4rem;margin-bottom:16px; }
 .markdown-body li p,
-.markdown-body .m-0 p,
+.markdown-body p.m-0,
 .markdown-body blockquote p{ text-indent:unset;margin-bottom:.5rem; }
 </style>
