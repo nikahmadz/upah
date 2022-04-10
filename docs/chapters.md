@@ -73,7 +73,7 @@ Season masih bersedih dengan kehilangan Peter dalam hidupnya. Season mencuba mer
 Agensi Perisikan Malaysia masih memburu Salina kerana bagi mereka, Salina adalah pengkhianat negara berdasarkan kenyataan Ejen Malik. Salina terpaksa menyembunyikan diri walaupun banyak kali hampir ditangkap.
 
 ### Bab 21
-Salina nyaris didapati membelot Tiger dan dipaksa melakukan hubungan terlarang dengan Tiger sebagai bukti kesetiaan. Salina terpaksa melakukannya. Ghaz berasa kasihan dengan nasib Salina. Namun, Ghaz tahu bahawa Salina tiada pilihan. Ghaz memujuk hati Salina.
+Salina nyaris didapati membelot Tiger dan dipaksa melakukan XXX dengan Tiger sebagai bukti kesetiaan. Salina terpaksa melakukannya. Ghaz berasa kasihan dengan nasib Salina. Namun, Ghaz tahu bahawa Salina tiada pilihan. Ghaz memujuk hati Salina.
 
 ### Bab 22
 Tiger masih merasakan kehilangan bapanya, Kong. Tiger semakin kuat mabuk dan menghisap dadah. Ejen Malik menasihati Tiger agar mengurangkan penggunaan dadah dan kurangkan mengambil minuman keras. Namun, Tiger berdegil. Ejen Malik membiarkan Tiger dan di dalam lubuk hati Ejen Malik, dia gembira melihat Tiger begitu agar senang dia untuk mengambil alih kedudukan Tiger.
@@ -82,7 +82,7 @@ Tiger masih merasakan kehilangan bapanya, Kong. Tiger semakin kuat mabuk dan men
 Rancangan Ghaz dan Salina hampir diketahui Tiger. Namun, mereka berjaya menyembunyikannya. Perancangan rapi semakin giat dipersiapkan oleh mereka bagi menyelesaikan misi mereka.
 
 ### Bab 24
-Tiger memberi peluang kepada Ejen Malik untuk menikmati hubungan bersama Salina. Ejen Malik sangat berbesar hati dan seronok melakukan sedemikian. Namun, Salina menderita di dalam jiwanya atas tindakan Ejen Malik.
+Tiger memberi peluang kepada Ejen Malik untuk XXXXXXXX bersama Salina. Ejen Malik sangat berbesar hati dan seronok melakukan sedemikian. Namun, Salina menderita di dalam jiwanya atas tindakan Ejen Malik.
 
 ### Bab 25
 Season ditawan oleh Tiger. Ejen Malik menyeksa Season demi mendapatkan maklumat mengenai rancangan Ghaz dan Salina. Namun, Season seorang yang kental dan tidak membocorkan rahsia Ghaz dan Salina.
