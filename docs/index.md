@@ -94,6 +94,14 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 
 - **Dato’ Khan** - (_Dato' Abdullah Khan_)
 
+<div style="margin-top:4rem"></div>
+
+***
+
+[clips](./clips)
+[chapters](./chapters)
+[trash](./trash)
+{: .m-0 }
 
 <div style="margin-top:4rem"></div>
 <style>

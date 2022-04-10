@@ -1,7 +1,7 @@
 ---
 title: Ringkasan | Upah
 ---
-{% include back.html %}
+{% include back.html %}{: .m-0 }
 
 ***
 

@@ -1,7 +1,7 @@
 ---
 title: Trash | Upah
 ---
-{% include back.html %}
+{% include back.html %}{: .m-0 }
 
 ***
 
