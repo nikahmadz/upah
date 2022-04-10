@@ -30,7 +30,7 @@ Gan mahu melepaskan diri dari perangkap kumpulan kongsi gelap lalu berhadapan de
 Senja belum lewat.
 
 ## SINOPSIS RINGKAS
-Kematian **Kuan Kong**, ketua kumpulan kongsi gelap **Bintang Merah** telah mencetuskan rentetan peristiwa besar yang merubah perjalanan hidup seorang pembunuh upahan yang terkenal bergelar **Gan**.  Kematian Kong dipercayai didalangi oleh **Peter**, ketua kumpulan **Kuda Besi** yang semakin berpengaruh di tengah kota.  **Tiger** anak Kong telah mendapatkan khidmat **Gan** bagi menuntut bela atas kematian bapanya.  Tiger meminta Gan membunuh seluruh ahli keluarga Peter serta konco-konco yang terlibat dalam pembunuhan bapanya.  Namun, Tiger telah mengkhianati Gan.  Tiger menuduh Gan sengaja melepaskan **Jenny**, anak perempuan Peter.  Gan telah diperangkap supaya menjadi buruan **pihak berkuasa**.  Dalam usaha melepaskan diri dari perangkap Tiger, Gan telah bertemu dengan **Salina**, bekas anggota risikan **APN** yang sedang melarikan diri dari buruan agensinya.  Salina sebelum itu telah dipecat dari APN setelah rakan setugasnya, **Malik** menuduh Salina pecah amanah.  Gan dan Salina telah sepakat untuk memperbetulkan keadaan.
+Kematian **Kuan Kong**, ketua kumpulan kongsi gelap **Bintang Merah** telah mencetuskan rentetan peristiwa besar yang merubah perjalanan hidup seorang penembak upahan yang terkenal bergelar **Gan**.  Kematian Kong dipercayai didalangi oleh **Peter**, ketua kumpulan **Kuda Besi** yang semakin berpengaruh di tengah kota.  **Tiger** anak Kong telah mendapatkan khidmat **Gan** bagi menuntut bela atas kematian bapanya.  Tiger meminta Gan menghapuskan seluruh ahli keluarga Peter serta konco-konco yang terlibat menyerang bapanya.  Namun, Tiger telah mengkhianati Gan.  Tiger menuduh Gan sengaja melepaskan **Jenny**, anak perempuan Peter.  Gan telah diperangkap supaya menjadi buruan **pihak berkuasa**.  Dalam usaha melepaskan diri dari perangkap Tiger, Gan telah bertemu dengan **Salina**, bekas anggota risikan **APN** yang sedang melarikan diri dari buruan agensinya.  Salina sebelum itu telah dipecat dari APN setelah rakan setugasnya, **Malik** menuduh Salina pecah amanah.  Gan dan Salina telah sepakat untuk memperbetulkan keadaan.
 
 ## SINOPSIS
 
@@ -41,20 +41,20 @@ Kong yang semakin terdesak bertindak melancarkan perang saraf terhadap **Peter**
 
 Kematian Kong telah mencetuskan sengketa antara dua kumpulan kongsi gelap itu.  **Tiger**, anak sulung Kong langsung memberontak mahu menuntut bela di atas kematian bapanya.  Tiger dengan terburu-buru telah beberapa kali menyerang Peter namun gagal membalas dendam.  Dia akhirnya mendapatkan khidmat **Gan**, penembak profesional yang hebat dan disegani ahli kumpulan Bintang Merah untuk melampiaskan dendamnya.
 
-Orang itu hampir tiada nama, namun dikalangan mereka dia dikenali sebagai **Gan**.  Tiger meminta Gan menamatkan riwayat seluruh ahli keluarga Peter serta konco-konco yang terlibat dalam pembunuhan bapanya.  Tiger telah menawarkan kepada Gan beberapa ketul bongkah emas yang besar-besar bernilai lebih dari **RM3.6 juta**.  Dengan cagaran sejumlah wang tunai, Gan menerima tawaran itu.
+Orang itu hampir tiada nama, namun dikalangan mereka dia dikenali sebagai **Gan**.  Tiger meminta Gan menghapuskan seluruh ahli keluarga Peter serta konco-konco yang terlibat dalam serangan ke atas bapanya.  Tiger telah menawarkan kepada Gan beberapa ketul bongkah emas yang besar-besar bernilai lebih dari **RM3.6 juta**.  Dengan cagaran sejumlah wang tunai, Gan menerima tawaran itu.
 
 Selang beberapa hari, kecoh di dada akhbar dan internet mengenai kematian keluarga Peter serta konco-konconya.  Namun, setelah itu Tiger sengaja membatalkan perjanjiannya dengan Gan.  Tiger menuduh Gan tidak menepati janji.  Dalam seketika Tiger mengubah corak permainannya dan menjadikan Gan sebagai sasaran.
 
 ### KONFLIK 1
-Rupa-rupanya, sejak mula lagi Tiger sudah merancang untuk mengenakan Gan.  Tiger telah mengarahkan ahli kumpulan Bintang Merah supaya membunuh Gan sebaik sahaja keluarga Peter terbunuh.  Malah, Tiger turut mengajak kumpulan **Mawar Putih** untuk berkomplot dan terlibat sama.  Tiger mendakwa kononnya Gan sengaja melepaskan **Jenny**, anak perempuan Peter.  Justeru itu, Tiger telah menafikan bayaran yang dijanjikannya kepada Gan.
+Rupa-rupanya, sejak mula lagi Tiger sudah merancang untuk mengenakan Gan.  Tiger telah mengarahkan ahli kumpulan Bintang Merah supaya menyerang Gan sebaik sahaja keluarga Peter terbunuh.  Malah, Tiger turut mengajak kumpulan **Mawar Putih** untuk berkomplot dan terlibat sama.  Tiger mendakwa kononnya Gan sengaja melepaskan **Jenny**, anak perempuan Peter.  Justeru itu, Tiger telah menafikan bayaran yang dijanjikannya kepada Gan.
 
 Awal-awal lagi Tiger telah bertindak mendedahkan operasi Gan kepada **pihak berkuasa**.  Gan berang dengan tindakan Tiger, akan tetapi Gan telah terperangkap.  Dia yang sedang berada dalam bahaya perlu pantas menyelamatkan diri dan membersihkan namanya dari rekod jenayah pihak berkuasa.  Sekelip mata, hidup Gan bagaikan tikus dihambat kucing-kucing lapar.  Dia tidak dapat ke mana-mana.  Sedikit pun tidak dapat menonjolkan diri.  Setiap gerak-gerinya diekori pihak berkuasa dan kedua-dua kumpulan pengganas itu.  Gan mesti menyelesaikan masalah ini segera sebelum dia terjerat lalu tertangkap.
 
 ### KONFLIK 2 (KEMUNCAK)
-Gan bertemu **Salina** buat pertama kali ketika dia sedang mengintip gerak-geri Tiger dalam usaha membunuhnya.  Salina yang  merupakan bekas anggota perisik **APN** (Agensi Perisikan Negara), ketika itu sedang melarikan diri dari diburu agensinya.  Dia telah dipecat setelah dikhianati oleh rakan setugasnya, **Malik**.  Gan dan Salina telah sepakat untuk menyelesaikan masalah yang dihadapi mereka berdua.  Tindak-tanduk Gan dan Salina bakal menentukan nasib semua orang yang terlibat dalam cerita ini.
+Gan bertemu **Salina** buat pertama kali ketika dia sedang mengintip gerak-geri Tiger dalam usaha menghapuskannya.  Salina yang  merupakan bekas anggota perisik **APN** (Agensi Perisikan Negara), ketika itu sedang melarikan diri dari diburu agensinya.  Dia telah dipecat setelah dikhianati oleh rakan setugasnya, **Malik**.  Gan dan Salina telah sepakat untuk menyelesaikan masalah yang dihadapi mereka berdua.  Tindak-tanduk Gan dan Salina bakal menentukan nasib semua orang yang terlibat dalam cerita ini.
 
 ### KONFLIK 3
-Tiger yang semakin terdesak bertindak membocorkan setiap pergerakan Gan kepada pihak berkuasa.  Tiger mahu Gan segera tertangkap dan mati di tali gantung.  Gan berusaha gigih untuk keluar dari perhatian pihak berkuasa serta cengkaman ahli kumpulan Bintang Merah.  Gan perlu mengalihkan perhatian mereka dan menyabitkan kes pembunuhan keluarga Peter dan konco-konconya terhadap Tiger dan kumpulan Bintang Merah.
+Tiger yang semakin terdesak bertindak membocorkan setiap pergerakan Gan kepada pihak berkuasa.  Tiger mahu Gan segera tertangkap dan mati di tali gantung.  Gan berusaha gigih untuk keluar dari perhatian pihak berkuasa serta cengkaman ahli kumpulan Bintang Merah.  Gan perlu mengalihkan perhatian mereka dan menyabitkan kes kematian keluarga Peter dan konco-konconya terhadap Tiger dan kumpulan Bintang Merah.
 
 ### PENYELESAIAN
 Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan jenayah Bintang Merah.  Gan berjaya mendapatkan bukti-bukti perancangan jenayah kumpulan Bintang Merah.  Kumpulan kongsi gelap itu akhirnya tumpas di tangan pihak berkuasa dengan maklumat yang diberikan.  Gan yang terdesak terpaksa menyerah diri kepada pihak berkuasa dengan menjadikan maklumat-maklumat yang diperolehinya sebagai sandaran dalam membela diri.  Pihak berkuasa bersetuju untuk melindungi Gan di mahkamah sebagai pemberi maklumat yang bekerjasama.  Setelah beberapa siri perbicaraan berlangsung di mahkamah rayuan, hukuman ke atas Gan telah diringankan.  Gan yang pada awalnya dijatuhi hukuman mati telah dihukum penjara seumur hidup.
@@ -82,7 +82,7 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 
 ## WATAK-WATAK SAMPINGAN
 
-- **Kong** - (_Kuan Kong_) - Ketua kumpulan Bintang Merah yang berpengaruh di tengah kota raya.  Kong dibunuh ketika berusia 63 tahun akibat perebutan kuasa dan pengaruh.
+- **Kong** - (_Kuan Kong_) - Ketua kumpulan Bintang Merah yang berpengaruh di tengah kota raya.  Kong mati terbunuh dalam usia 63 tahun setelah diserang oleh kumpulan Kuda Besi akibat perebutan kuasa dan pengaruh.
 
 - **Peter** - (_Peter Season_) - Ketua kumpulan Kuda Besi yang semakin berpengaruh.
 
