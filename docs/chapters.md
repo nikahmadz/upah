@@ -16,13 +16,13 @@ Tarikh Terbit: Apr 9, 2022, 1:59 PM GMT+8
 Sebuah kes pembunuhan telah berlaku yang melibatkan seorang ketua kumpulan kongsi gelap yang dikenali sebagai Tanda Merah di Kuala Lumpur. Ini membuatkan anak kesayangannya, Tiger, memberontak untuk mencari pembunuh-pembunuh bapanya itu. Tiger mencari jalan untuk membalas dendam.
 
 ### Bab 2
-Ketua Kongsi Gelap Kuda Padi iaitu Peter meraikan kejayaan mereka dalam menjatuhkan kumpulan Tanda Merah. Anak Peter iaitu Season, diberikan kemewahan kerana Peter begitu gembira dengan kejayaan itu. Tetapi, Peter mendapat ramalan bahawa dia akan binasa selepas bertemu dengan tukang tilik.
+Ketua Kongsi Gelap Kuda Besi iaitu Peter meraikan kejayaan mereka dalam menjatuhkan kumpulan Tanda Merah. Anak Peter iaitu Season, diberikan kemewahan kerana Peter begitu gembira dengan kejayaan itu. Tetapi, Peter mendapat ramalan bahawa dia akan binasa selepas bertemu dengan tukang tilik.
 
 ### Bab 3
 Tiger menjumpai seorang pembunuh upahan yang handal dari Taiping, Perak. Itulah Ghaz. Ghaz dibekalkan dengan pelbagai peralatan pembunuhan yang diperlukan di samping peralatan yang diperlukan untuk penyamaran dan perisikan oleh Tiger. Ghaz mengambil sedikit masa untuk mempersiapkan diri bagi menempuhi halangan dalam menyelesaikan tugasan ini.
 
 ### Bab 4
-Ghaz mengkaji siapa yang perlu dibunuh dan bagaimana cara termudah untuk membunuh sasaran itu. Ghaz juga melakukan modifikasi terhadap peralatan-peralatan pembunuhannya. Penyamaran Ghaz dalam mencari maklumat hampir diketahui kumpulan Kuda Padi. Namun, Ghaz berjaya mengelak dari rahsianya bocor.
+Ghaz mengkaji siapa yang perlu dibunuh dan bagaimana cara termudah untuk membunuh sasaran itu. Ghaz juga melakukan modifikasi terhadap peralatan-peralatan pembunuhannya. Penyamaran Ghaz dalam mencari maklumat hampir diketahui kumpulan Kuda Besi. Namun, Ghaz berjaya mengelak dari rahsianya bocor.
 
 ### Bab 5
 Ghaz sudah bersedia dengan perancangan untuk membalas dendam dengan dibekalkan maklumat dan kelengkapan pembunuhan serta keperluan lain oleh Tiger. Ghaz melancarkan serangan terhadap sasarannya setelah sekian lama mengkaji siapa dan bagaimana hendak menyelesaikannya.
@@ -115,10 +115,10 @@ Tiger juga berjaya mendapatkan Season dengan bantuan Salina. Ghaz naik berang. T
 Ejen Malik membocorkan siapa Salina sebenar kepada Tiger. Tiger naik berang dan memburu Salina. Tiger terpaksa berpindah dan menukarkan semua strategi kegiatan haramnya. Tiger marah dengan Ejen Malik kerana lambat memberikan maklumat.
 
 ### Bab 35
-Season dibantu oleh saki-baki kumpulan Kuda Padi dalam kelangsungan hidup. Perang besar berlaku di antara Tanda Merah dan Kuda Padi. Silmi masih belum ditemui. Namun, Season mati dibunuh setelah pertempuran itu.
+Season dibantu oleh saki-baki kumpulan Kuda Besi dalam kelangsungan hidup. Perang besar berlaku di antara Tanda Merah dan Kuda Besi. Silmi masih belum ditemui. Namun, Season mati dibunuh setelah pertempuran itu.
 
 ### Bab 36
-Silmi berjaya diselamatkan sekali gus menumpaskan kumpulan Tanda Merah dan Ejen Malik yang melibatkan perancangan peperangan seluruh Asia bagi menakluki Asia secara perang digital. Ghaz menuntut bela di atas kematian anak ketua kongsi gelap Kuda Padi. Ejen Malik dibunuh oleh Tiger.
+Silmi berjaya diselamatkan sekali gus menumpaskan kumpulan Tanda Merah dan Ejen Malik yang melibatkan perancangan peperangan seluruh Asia bagi menakluki Asia secara perang digital. Ghaz menuntut bela di atas kematian anak ketua kongsi gelap Kuda Besi. Ejen Malik dibunuh oleh Tiger.
 
 ### Bab 37
 Ghaz juga berjaya mendapatkan data-data jenayah Tanda Merah sebagai perlindungan diri dan menyalurkan maklumat itu kepada pihak polis kerana terdesak mengakibatkan sindiket itu tumpas.

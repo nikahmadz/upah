@@ -17,13 +17,13 @@ Semakan: R.3.0
 ```
 
 ## PENGENALAN
-Sebuah novel fiksyen aksi bertemakan jenayah dan aktiviti kongsi gelap dalam negara.  Menceritakan kisah mengenai seorang penembak handalan profesional yang terpaksa melepaskan diri dari perangkap ketua kumpulan kongsi gelap yang memperdayakannya sekaligus membersihkan namanya dari rekod pihak berkuasa.  Memaparkan unsur-unsur pengkhianatan, dendam dan kepentingan integriti serta kejujuran dalam pekerjaan.
+Sebuah novel fiksyen aksi bertemakan jenayah dan aktiviti kongsi gelap dalam negara.  Menceritakan kisah mengenai seorang penembak handalan profesional yang menemui jalan kebenaran setelah berjaya melepaskan diri dari perangkap ketua kumpulan kongsi gelap yang memperdayakannya.  Memaparkan unsur-unsur pengkhianatan, dendam dan kepentingan integriti serta kejujuran dalam pekerjaan.
 
 ## MESEJ
 Setiap pekerjaan mesti dilakukan dengan jujur dan amanah.
 
 ## LOGLINE
-Gan, penembak upahan yang berjaya melepaskan diri setelah diperdayakan oleh kumpulan kongsi gelap telah insaf dan kembali kepada Islam dan kehidupan yang lebih baik.
+Gan mahu melepaskan diri dari perangkap kumpulan kongsi gelap lalu berhadapan dengan pelbagai insiden yang menginsafkan dirinya.  Setelah berjaya meloloskan diri dan membersihkan namanya dari rekod jenayah pihak berkuasa, Gan kembali ke jalan kebenaran.
 
 ## TAGLINE
 Senja belum lewat.
@@ -34,13 +34,13 @@ Kematian **Kuan Kong**, ketua kumpulan kongsi gelap **Bintang Merah** telah menc
 ## SINOPSIS
 
 ### LATAR BELAKANG
-Kedudukan kumpulan **Bintang Merah** sudah tercabar sejak beberapa tahun lalu dengan pengaruh kumpulan **Kuda Besi** yang semakin kuat.  Bilangan ahli kumpulan Kuda Besi saban tahun semakin bertambah.  **Kuan Kong** sebagai ketua kumpulan Bintang Merah bimbang dengan keadaan itu.  Bintang Merah sudah lama menjaga tengah kota.  Kong tidak mahu kumpulan baru itu mendahuluinya.
+Kedudukan kumpulan **Bintang Merah** mula tercabar sejak beberapa tahun lalu dengan pengaruh kumpulan **Kuda Besi** yang semakin kuat.  Bilangan ahli kumpulan Kuda Besi saban tahun semakin bertambah.  **Kuan Kong** sebagai ketua kumpulan Bintang Merah bimbang dengan keadaan itu.  Bintang Merah sudah lama menjaga kawasan tengah kota raya.  Kong tidak mahu kumpulan baru itu mendahuluinya.
 
-Kong yang semakin terdesak bertindak melancarkan perang saraf terhadap **Peter**, ketua kumpulan Kuda Padi.  Acap kali, Kong merendah-rendahkan dan memperkecilkan Peter dengan tujuan melemahkan pengaruhnya.  Peter tidak berpuas hati apabila Kong serta ahli kumpulannya terus menerus melecehkan kumpulannya.  Peter bertambah berang apabila Kong mula menghina keluarga serta keturunannya serta memandang rendah kebolehannya memimpin.  Kerana maruah keluarga yang tercalar dan ego yang tercabar, Peter memilih untuk menamatkan nyawa Kong.
+Kong yang semakin terdesak bertindak melancarkan perang saraf terhadap **Peter**, ketua kumpulan Kuda Besi.  Acap kali, Kong merendah-rendahkan dan memperkecilkan Peter dengan tujuan melemahkan pengaruhnya.  Peter tidak berpuas hati apabila Kong serta ahli kumpulannya terus menerus melecehkan kumpulannya.  Peter bertambah berang apabila Kong mula menghina keluarga serta keturunannya serta memandang rendah kebolehannya memimpin.  Kerana maruah keluarga yang tercalar dan ego yang tercabar, Peter memilih untuk menamatkan nyawa Kong.
 
 Kematian Kong telah mencetuskan sengketa antara dua kumpulan kongsi gelap itu.  **Tiger**, anak sulung Kong langsung memberontak mahu menuntut bela di atas kematian bapanya.  Tiger dengan terburu-buru telah beberapa kali menyerang Peter namun gagal membalas dendam.  Dia akhirnya mendapatkan khidmat **Gan**, penembak profesional yang hebat dan disegani ahli kumpulan Bintang Merah untuk melampiaskan dendamnya.
 
-Orang itu hampir tiada nama, namun dikalangan mereka dia dikenali sebagai **Gan**.  Tiger meminta Gan menamatkan riwayat seluruh ahli keluarga Peter serta konco-konco yang terlibat dalam pembunuhan bapanya.  Tiger telah menawarkan kepada Gan beberapa ketul bongkah emas yang besar-besar bernilai lebih dari **RM3.6 juta**.  Sebagai pendahuluan, Gan diberikan wang tunai berjumlah RM100ribu.  Gan menerima tawaran itu.
+Orang itu hampir tiada nama, namun dikalangan mereka dia dikenali sebagai **Gan**.  Tiger meminta Gan menamatkan riwayat seluruh ahli keluarga Peter serta konco-konco yang terlibat dalam pembunuhan bapanya.  Tiger telah menawarkan kepada Gan beberapa ketul bongkah emas yang besar-besar bernilai lebih dari **RM3.6 juta**.  Sebagai pendahuluan, Gan diberikan wang tunai berjumlah **RM100 ribu**.  Gan menerima tawaran itu.
 
 Selang beberapa hari, kecoh di dada akhbar dan internet mengenai kematian keluarga Peter serta konco-konconya.  Namun, setelah itu Tiger sengaja membatalkan perjanjiannya dengan Gan.  Tiger menuduh Gan tidak menepati janji.  Dalam seketika Tiger mengubah corak permainannya dan menjadikan Gan sebagai sasaran.
 

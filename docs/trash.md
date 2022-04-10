@@ -82,7 +82,7 @@ Thye dan Langsi memahami perasaan Tiger. Tiger menitiskan air mata di hadapan Th
 Thye dan Langsi beredar dari situ meninggalkan Tiger sendirian.
 
 Bab 2
-Peter yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga ketua kumpulan kongsi gelap Kuda Padi sedang meraikan kejayaan kumpulan di rumah agam miliknya. Peter sedikit mabuk pada malam itu.
+Peter yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga ketua kumpulan kongsi gelap Kuda Besi sedang meraikan kejayaan kumpulan di rumah agam miliknya. Peter sedikit mabuk pada malam itu.
 “Manyak syok ooo ini malam. Hati manyak senang. Ini dinamakan rahmat Tuhan.” Peter berkata kepada konco-konconya.
 “Dragon! Come here!” Peter memanggil Dragon sambil menggamit kepadanya.
 “Tailong.” Dragon yang merupakan seorang lelaki berbangsa Cina berdiri di hadapan Peter dengan penuh hormat. Dragon berkemeja merah.
@@ -196,7 +196,7 @@ Setibanya Ghaz ke rumah selamatnya, dia membuka pintu dengan penuh hati-hati. Ke
 “Kami nak tanye ape yang ko perlukan untuk mendapatkan maklumat lanjut mengenai suspek.” Thye berkata kepada Ghaz melalui telefon.
 “Nanti aku bagitau.” Ghaz berkata kepada Thye dan menamatkan panggilan telefon itu.
 Ghaz mengeluarkan dokumen-dokumen yang diberikan oleh Tiger dari dalam jaketnya dan diletakkan di atas meja. Ghaz meneliti gambar-gambar yang ada pada dokumen-dokumen itu. Ghaz terperasankan sesuatu pada salah satu gambar itu. Ghaz meneliti kesemunya dan apa yang Ghaz lihat, ada dalam semua gambar itu. Ghaz mengeluarkan buku senarai kongsi gelap Malaysia yang disediakan oleh dirinya sendiri. Ghaz mendapati lambang buah rantai yang ada pada lelaki berbaju merah itu.
-“Ini geng Kuda Padi. Tapi, apa depa buat kat K.L. ni? Bukan Kedah ka?” Ghaz berkata dalam hati.
+“Ini geng Kuda Besi. Tapi, apa depa buat kat K.L. ni? Bukan Kedah ka?” Ghaz berkata dalam hati.
 “Sapa dia ni?” Ghaz bertanya pada diri sendiri.
 “Oghang baghu?” Ghaz terfikir dan bermonolog. Wajahnya sedikit terkejut.
 “Takkan dah mai K.L.?” Ghaz terfikir dan berfikir. Ghaz menelefon Thye.
@@ -207,7 +207,7 @@ Ghaz mengeluarkan dokumen-dokumen yang diberikan oleh Tiger dari dalam jaketnya 
 “Baik. Papa roger.” Ghaz berkata kepada Thye dan terus menamatkan panggilang telefon. Ghaz mengeluh kegusaran.
 “Takpa. Benda kecik ja. Cuma.. Dahsyat gak sebab buleh “cantas” geng K.L. yang dah international. Respect but a suspect. Kena pakai spek.” Ghaz bermonolog.
 Keesokan harinya, Ghaz bertemu dengan Tiger dan Thye di rumah agam Tiger. Mereka berbincang mengenai peralatan-peralatan dan senjata-senjata yang diperlukan untuk menjalankan misi menuntut bela atas kematian Kong dahulu.
-“Aku perlukan silicon untuk buat topeng wajah ahli Kuda Padi. Supaya aku buleh masuk ke markas depa dengan mudah.” Ghaz berkata kepada Tiger dan Thye sambil meminum kopi panas yang disediakan di atas meja. Ghaz, Tiger dan Thye duduk bersama pada sebuah meja dalam bilik mesyuarat.
+“Aku perlukan silicon untuk buat topeng wajah ahli Kuda Besi. Supaya aku buleh masuk ke markas depa dengan mudah.” Ghaz berkata kepada Tiger dan Thye sambil meminum kopi panas yang disediakan di atas meja. Ghaz, Tiger dan Thye duduk bersama pada sebuah meja dalam bilik mesyuarat.
 “Macam mane lu nak design topeng tu?” Tiger bertanya kepada Ghaz.
 “Aku ada mesin ma.” Ghaz menjawab pertanyaan Tiger.
 “Canggih. Aku suke.” Tiger berkata kepada Ghaz.
@@ -247,7 +247,7 @@ Malam itu, Ghaz membuat topeng wajah Dragon dalam bentuk pengklonan dengan mengg
 “Mampos la hangpa.” Ghaz bemonolog. Ghaz tersenyum sendirian. Ghaz mencuba alat alih suara yang ada padanya.
 “Apa cerita?” Ghaz mencuba alat itu sambil memakainya di tekak. Alat itu mengeluarkan suara Dragon.
 “ Esok, kita test.” Ghaz berkata dalam hati. Ghaz berasa seronok dengan tugasan ini dan penyediaannya.
-Keesokan harinya, Ghaz pergi ke kawasan jagaan Kuda Padi dengan memakai topeng wajah Dragon lengkap dengan penampilan seperti Dragon. Ghaz bertemu dengan Skin yang merupakan seorang ahli kumpulan Skinhead dan juga merupakan ahli Kuda Padi yang menjaga kawasan itu. Ghaz disapa oleh Skin.
+Keesokan harinya, Ghaz pergi ke kawasan jagaan Kuda Besi dengan memakai topeng wajah Dragon lengkap dengan penampilan seperti Dragon. Ghaz bertemu dengan Skin yang merupakan seorang ahli kumpulan Skinhead dan juga merupakan ahli Kuda Besi yang menjaga kawasan itu. Ghaz disapa oleh Skin.
 “Halo, Tailong… Mr. Dragon in the house.” Skin menyapa Ghaz. Ghaz terpinga-pinga kerana tidak tahu nama gelaran Dragon. Ghaz mencuba untuk menyembunyikan penyamarannya.
 “Yo, bro. Apa habaq?” Ghaz berborak dengan Skin.
 “Wah…! Lu cakap utare, bro? Sejak-sejak berkecimpung dengan bos yang pelat utare ni.. Makin fasih lu,bro? Haha!” Skin memerli Ghaz kerana menyangkakan itu adalah Dragon.
@@ -259,7 +259,7 @@ Keesokan harinya, Ghaz pergi ke kawasan jagaan Kuda Padi dengan memakai topeng w
 “Bukan, Prince Court, bro.. Lu ni pelik la, bro.” Skin berkata kepada Ghaz.
 “Saje je wa test lu. Kot-kot lu stim ke pe.” Ghaz mencuba untuk memperbaiki kesilapannya.
 “Lu makin kurus la, bro.” Skin menegur Ghaz kerana dia berasa hairan.
-“Lu ni ade-ade je. Gua gerak lu.” Ghaz berkata kepada Skin sambil meninggalkan kawasan itu. Ghaz menuju ke Prince Court. Setibanya di sana, Ghaz menyelinap masuk ke rumah agam Kuda Padi. Ironinya, terdapat logo Kuda Padi pada rumah itu. Mudah untuk Ghaz mengecam rumahnya. Ghaz meneliti seluruh pelusuk rumah itu untuk mencari tempat bersembunyi, melarikan diri, dan untuk menjalankan misinya membunuh Peter. Ghaz dapat melihat pelbagai laluan rahsia, tempat bersembunyi yang strategik seperti di dalam perisai kesatria, sebalik almari dan sebalik dinding, tempat poison beriadah dan jumlah ahli Kuda Padi yang mengawasi rumah itu yang tidak lebih dari dua puluh orang. Ghaz dapat melihat Peter di dalam bilik khasnya. Ghaz tiba di suatu ruangan rahsia Kuda Padi. Tiba-tiba, Dragon masuk ke ruangan itu. Namun, Ghaz sempat bersembunyi di dalam almari. Ghaz memerhatikan Dragon yang sedang meneliti peralatan untuk merompak. Ghaz berasa risau kalau-kalau tertangkap. Kemudian, Dragon keluar dari ruangan itu. Ghaz meloloskan diri dari rumah agam itu. Setibanya di kawasan yang selamat, Ghaz menelefon Thye.
+“Lu ni ade-ade je. Gua gerak lu.” Ghaz berkata kepada Skin sambil meninggalkan kawasan itu. Ghaz menuju ke Prince Court. Setibanya di sana, Ghaz menyelinap masuk ke rumah agam Kuda Besi. Ironinya, terdapat logo Kuda Besi pada rumah itu. Mudah untuk Ghaz mengecam rumahnya. Ghaz meneliti seluruh pelusuk rumah itu untuk mencari tempat bersembunyi, melarikan diri, dan untuk menjalankan misinya membunuh Peter. Ghaz dapat melihat pelbagai laluan rahsia, tempat bersembunyi yang strategik seperti di dalam perisai kesatria, sebalik almari dan sebalik dinding, tempat poison beriadah dan jumlah ahli Kuda Besi yang mengawasi rumah itu yang tidak lebih dari dua puluh orang. Ghaz dapat melihat Peter di dalam bilik khasnya. Ghaz tiba di suatu ruangan rahsia Kuda Besi. Tiba-tiba, Dragon masuk ke ruangan itu. Namun, Ghaz sempat bersembunyi di dalam almari. Ghaz memerhatikan Dragon yang sedang meneliti peralatan untuk merompak. Ghaz berasa risau kalau-kalau tertangkap. Kemudian, Dragon keluar dari ruangan itu. Ghaz meloloskan diri dari rumah agam itu. Setibanya di kawasan yang selamat, Ghaz menelefon Thye.
 “Okey, Aku dah risik semua. Line clear. Aku akan buat secepat mungkin.” Ghaz berkata kepada Thye.
 “Roger that.” Thye berkata kepada Ghaz melalui telefon. Thye menamatkan panggilan. Ghaz berasa berpuas hati dengan hasil penyamaran dan perisikannya.
 
