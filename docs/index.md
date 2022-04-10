@@ -69,7 +69,7 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 
 ## WATAK-WATAK UTAMA
 
-- **Tiger** - (_Tee Kuan_) - anak lelaki sulung Kuan Kong.  Seorang yang berpewatakan segak dan bergaya.  Sangat licik dengan helah dan tipu daya.  Bertugas menjaga kewangan kumpulan Bintang Merah.  Banyak belajar selok belok mengetuai kumpulan kongsi gelap itu daripada bapanya.  Setelah kematian bapanya, dia dipilih secara langsung sebagai ketua Bintang Merah menggantikan tempat bapanya.
+- **Tiger** - (_Kuan Tee_) - anak lelaki sulung Kuan Kong.  Seorang yang berpewatakan segak dan bergaya.  Sangat licik dengan helah dan tipu daya.  Bertugas menjaga kewangan kumpulan Bintang Merah.  Banyak belajar selok belok mengetuai kumpulan kongsi gelap itu daripada bapanya.  Setelah kematian bapanya, dia dipilih secara langsung sebagai ketua Bintang Merah menggantikan tempat bapanya.
 
 - **Gan** - (_Gan Joon_) - merupakan penembak profesional yang hebat dan disegani ahli kumpulan Bintang Merah.  Gan bergerak seorang diri,  tiada hubungan kawan mahupun keluarga dengan sesiapa pun yang dikenali orang.  Tiada sesiapa mengenali asal usulnya, tempat tinggal, kawan-kawan atau keluarganya.  Dia hanya dikenali dengan nama samaran dan kemahirannya semata-mata.
 
