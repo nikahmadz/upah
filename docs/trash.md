@@ -1,20 +1,22 @@
-nonsensicalnonsense---
-title: Trash | Upahan
+---
+title: Trash | Upah
 ---
 {% include back.html %}
 
 ***
 
-# Trash
+## Trash
 
 ```yml
-Note: Well I was tasked to cut craps out of this nonsense article.
+Note: Well I was tasked to cut craps out of this article.
 ```
 
 ### NOVEL UPAHAN
 > OLEH FADHLI WAHAB
 
-###### BAB 1
+### Bab 1
+>  Sebuah kes pembunuhan telah berlaku yang melibatkan seorang ketua kumpulan kongsi gelap yang dikenali sebagai Tanda Merah di Kuala Lumpur. Ini membuatkan anak kesayangannya, Tiger, memberontak untuk mencari pembunuh-pembunuh bapanya itu. Tiger mencari jalan untuk membalas dendam.
+
 Hujan renyai yang membasahi bumi Kuala Lumpur dalam rembang petang yang bersisa bahangnya itu, turun tiba-tiba bagaikan memberi petanda alam turut terkerjut apabila Kong, ketua kumpulan kongsi gelap Tanda Merah terbaring kaku di bahu jalan tanpa kepala. Ironi, kepalanya dipenggal di hadapan Masjid Jamek, Kampung Bharu. Tempat jatuh yang bukan setakat untuk dikenang, lebih lagi dari bermain. Wilayah yang dikuasainya sejak usia belasan tahun.
 Kong, separuh hidupnya diabdikan kepada kumpulan Tanda Merah. Sebuah kumpulan kongsi gelap terbesar di Kuala Lumpur. Dipungut oleh pengasasnya sewaktu dia tiada arah tuju dalam kehidupan. Membesar di Chow Kit, bapanya pelopor golongan gelandangan selepas melarikan diri dari Padang Jawa, Pulau Pinang, kerana dicari penduduk kampung selepas membuntingkan anak dara orang.
 Bapanya juga mungkin pelopor penagih candu dan mati kerananya. Tidak banyak yang Kong tahu mengenai orang tuanya. Ibunya sendiri seorang perempuan joget yang ditemui mati XXXXXX diri di dalam bilik sewa kecil di Kampung Bharu. Petang penuh tragis dan sadis buat kumpulan Tanda Merah. Tidak dijangka apatah lagi mereka bertempur dengan kumpulan yang tidak pernah diketahui kewujudannya dan apa punca mereka menyerang?
@@ -81,7 +83,9 @@ Thye dan Langsi memahami perasaan Tiger. Tiger menitiskan air mata di hadapan Th
 “Go.” Tiger menghalau Thye dan Langsi.
 Thye dan Langsi beredar dari situ meninggalkan Tiger sendirian.
 
-###### Bab 2
+### Bab 2
+> Ketua Kongsi Gelap Kuda Besi iaitu Peter meraikan kejayaan mereka dalam menjatuhkan kumpulan Tanda Merah. Anak Peter iaitu Season, diberikan kemewahan kerana Peter begitu gembira dengan kejayaan itu. Tetapi, Peter mendapat ramalan bahawa dia akan binasa selepas bertemu dengan tukang tilik.
+
 Peter yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga ketua kumpulan kongsi gelap Kuda Besi sedang meraikan kejayaan kumpulan di rumah agam miliknya. Peter sedikit mabuk pada malam itu.
 “Manyak syok ooo ini malam. Hati manyak senang. Ini dinamakan rahmat Tuhan.” Peter berkata kepada konco-konconya.
 “Dragon! Come here!” Peter memanggil Dragon sambil menggamit kepadanya.
@@ -165,7 +169,9 @@ Peter duduk di ruang tamu rumah itu sambil bercakap dengan tukang tilik, Samjisa
 “Aku tak emboh duit mu.” Samjisan berkata kepada Peter sambil melangkah keluar dari situ.
 “Sok aku bank in. 50k.” Peter berkata kepada Samjisan sambil meneliti tangkal itu yang berwarna hitam seperti rantai leher. Samjisan tersenyum sambil keluar dari situ.
 
-###### Bab 3
+### Bab 3
+> Tiger menjumpai seorang pembunuh upahan yang handal dari Taiping, Perak. Itulah Ghaz. Ghaz dibekalkan dengan pelbagai peralatan pembunuhan yang diperlukan di samping peralatan yang diperlukan untuk penyamaran dan perisikan oleh Tiger. Ghaz mengambil sedikit masa untuk mempersiapkan diri bagi menempuhi halangan dalam menyelesaikan tugasan ini.
+
 Tiger dan Ghaz bertemu di rumah agam milik Tiger. Mereka berdiri di hadapan masing-masing. Tiger dengan rantai emasnya di leher berbatukan lambang naga di dadanya, meneliti tubuh Ghaz.
 “Takla tegap mane pon.” Tiger memerli Ghaz. Ghaz hanya memerhatikan tingkahlaku Tiger. Ghaz tidak mengendahkan kata-kata Tiger. Kemudiannya, Thye masuk ke kawasan itu bersama teh Cina.
 “Bos.. Teh Cina kurang manis.” Thye meletakkannya di atas meja Tiger.
@@ -263,6 +269,8 @@ Keesokan harinya, Ghaz pergi ke kawasan jagaan Kuda Besi dengan memakai topeng w
 “Okey, Aku dah risik semua. Line clear. Aku akan buat secepat mungkin.” Ghaz berkata kepada Thye.
 “Roger that.” Thye berkata kepada Ghaz melalui telefon. Thye menamatkan panggilan. Ghaz berasa berpuas hati dengan hasil penyamaran dan perisikannya.
 
-###### Bab 4
+### Bab 4
+> Ghaz mengkaji siapa yang perlu dibunuh dan bagaimana cara termudah untuk membunuh sasaran itu. Ghaz juga melakukan modifikasi terhadap peralatan-peralatan pembunuhannya. Penyamaran Ghaz dalam mencari maklumat hampir diketahui kumpulan Kuda Besi. Namun, Ghaz berjaya mengelak dari rahsianya bocor.
+
 Ghaz sedang meneliti pelan rumah Peter. “Kalau lalu sini, memang susah. Tapi, banyak tempat persembunyian. Kalau ikut jalan kedua. Mampoi ooo.” Ghaz bermonolog.
 Ghaz berfikir sejenak sambil menggaru kepala. “Pening camni. Aku nak buat macam mana sebenaqnya?” Ghaz berkata dalam hati.

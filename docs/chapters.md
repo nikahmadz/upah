@@ -1,16 +1,17 @@
 ---
-title: Ringkasan | Upahan
+title: Ringkasan | Upah
 ---
 {% include back.html %}
 
 ***
 
 ```yml
-Judul: {{ page.title }}  
+Judul: {{ site.title }}  
 Tarikh Terbit: Apr 9, 2022, 1:59 PM GMT+8
 ```
 
-## RINGKASAN BAB UPAHAN OLEH FADHLI WAHAB
+## RINGKASAN BAB UPAHAN
+> OLEH FADHLI WAHAB
 
 ### Bab 1
 Sebuah kes pembunuhan telah berlaku yang melibatkan seorang ketua kumpulan kongsi gelap yang dikenali sebagai Tanda Merah di Kuala Lumpur. Ini membuatkan anak kesayangannya, Tiger, memberontak untuk mencari pembunuh-pembunuh bapanya itu. Tiger mencari jalan untuk membalas dendam.
