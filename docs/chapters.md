@@ -133,6 +133,8 @@ Ghaz dijatuhkan hukuman penjara seumur hidup. Salina dibunuh oleh saki-baki ahli
 ### Bab 40
 Kehidupan Ghaz amat sengsara di dalam penjara kerana ahli kumpulan Tanda Merah ramai di sana. Ghaz amat merindui anaknya Ghafir. Namun, tidak mampu untuk berbuat apa-apa. Ghaz akhirnya dibunuh di dalam penjara. Pembunuh Dato’ Abdullah Khan ditembak mati. Tiger dibebaskan setelah 25 tahun meringkuk di dalam penjara.
 
+<div style="margin-top:4rem"></div>
+
 > TAMAT
 {: .bg-secondary.text-grey.text-center.m-0 }
 
