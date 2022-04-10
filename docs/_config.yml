@@ -3,8 +3,6 @@
 # The theme of your site
 remote_theme: nikahmadz/pages
 
-# The title of your site
-title: Upah
-
-# A short description of your site's purpose
-description: - tiada komen -
+title: Upah # The title of your site
+description: - tiada komen - # A short description of your site's purpose
+header: bar
