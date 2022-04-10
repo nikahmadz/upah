@@ -11,13 +11,13 @@ title: Trash | Upahan
 Note: Well I was tasked to cut craps out of this nonsense article.
 ```
 
-###### NOVEL UPAHAN
+### NOVEL UPAHAN
 > OLEH FADHLI WAHAB
 
-BAB 1
+###### BAB 1
 Hujan renyai yang membasahi bumi Kuala Lumpur dalam rembang petang yang bersisa bahangnya itu, turun tiba-tiba bagaikan memberi petanda alam turut terkerjut apabila Kong, ketua kumpulan kongsi gelap Tanda Merah terbaring kaku di bahu jalan tanpa kepala. Ironi, kepalanya dipenggal di hadapan Masjid Jamek, Kampung Bharu. Tempat jatuh yang bukan setakat untuk dikenang, lebih lagi dari bermain. Wilayah yang dikuasainya sejak usia belasan tahun.
 Kong, separuh hidupnya diabdikan kepada kumpulan Tanda Merah. Sebuah kumpulan kongsi gelap terbesar di Kuala Lumpur. Dipungut oleh pengasasnya sewaktu dia tiada arah tuju dalam kehidupan. Membesar di Chow Kit, bapanya pelopor golongan gelandangan selepas melarikan diri dari Padang Jawa, Pulau Pinang, kerana dicari penduduk kampung selepas membuntingkan anak dara orang.
-Bapanya juga mungkin pelopor penagih candu dan mati kerananya. Tidak banyak yang Kong tahu mengenai orang tuanya. Ibunya sendiri seorang perempuan joget yang ditemui mati menggantungkan diri di dalam bilik sewa kecil di Kampung Bharu. Petang penuh tragis dan sadis buat kumpulan Tanda Merah. Tidak dijangka apatah lagi mereka bertempur dengan kumpulan yang tidak pernah diketahui kewujudannya dan apa punca mereka menyerang?
+Bapanya juga mungkin pelopor penagih candu dan mati kerananya. Tidak banyak yang Kong tahu mengenai orang tuanya. Ibunya sendiri seorang perempuan joget yang ditemui mati XXXXXX diri di dalam bilik sewa kecil di Kampung Bharu. Petang penuh tragis dan sadis buat kumpulan Tanda Merah. Tidak dijangka apatah lagi mereka bertempur dengan kumpulan yang tidak pernah diketahui kewujudannya dan apa punca mereka menyerang?
 “Bagi aku kepala tu!” Seorang lelaki berbaju merah, bertatu naga di pipi menjerit ke arah konco-konconya yang sedang menendang-nendang kepala lelaki yang nyawanya hilang melayang dalam tajam hayunan pedang. Kepala lambing kehormatan kini dijadikan seperti bola disepak-terajang di tengah padang walaupun mereka berada di atas jalan raya.  Sayang, baru hendak berasa berkuasa dalam usia matang, 51, kini Kong sudah menjadi sebahagian sejarah.
 “Kita menang!” Konco lelaki berbaju merah itu yang bernama Cabai yang merupakan seorang lelaki India berbadan sasa dalam lingkungan dua puluhan melaungkan kemenangan mereka dalam pergaduhan itu. Ah Teng yang merupakan seorang Cina yang berusia 45 tahun dan juga merupakan konco lelaki berbaju merah itu, mengangkat kepala Kong dan dipersembahkan dengan penuh adab di hadapan lelaki berbaju merah itu. “Taiko, kari kepala ikan. Hanyir sikit. Tapi, mahal.” sorak Ah Teng dengan penuh rasa bangga dihadapan ketuanya.
 Lelaki berbaju merah itu mengambil kepala Kong dan terus berjalan ke arah sebuah motosikal. Sebaik dia mendepangkan kaki untuk menunggang Bosozoku miliknya, orang kanan Kong, Acai cuba bertindak menyerang. Namun, lelaki berbaju merah jauh lebih pantas, bagai mata helang dia tahu bahaya menerpa, sempat mengelak, dicapai kerambit tersorok di balik badan Bosozoku kesayangannya, sepantas kilat dilayangkan di pergelangan leher Acai. Dihunus sedalam mungkin, direntap dan berpisah separuh urat badan dari kerongkong dan kepala. Acai jatuh berlutut di sisi lelaki itu dan sepantas kerdipan mata, nyawanya terbang melayang, sia-sia. Suasana yang riuh-rendah tadi bertukar sepi. Saki-baki konco-konco Kong memandang lelaki berbaju merah separuh gumam.
@@ -81,7 +81,7 @@ Thye dan Langsi memahami perasaan Tiger. Tiger menitiskan air mata di hadapan Th
 “Go.” Tiger menghalau Thye dan Langsi.
 Thye dan Langsi beredar dari situ meninggalkan Tiger sendirian.
 
-Bab 2
+###### Bab 2
 Peter yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga ketua kumpulan kongsi gelap Kuda Besi sedang meraikan kejayaan kumpulan di rumah agam miliknya. Peter sedikit mabuk pada malam itu.
 “Manyak syok ooo ini malam. Hati manyak senang. Ini dinamakan rahmat Tuhan.” Peter berkata kepada konco-konconya.
 “Dragon! Come here!” Peter memanggil Dragon sambil menggamit kepadanya.
@@ -92,7 +92,7 @@ Peter yang merupakan seorang lelaki berbangsa Melayu lingkungan 40-an dan juga k
 Syifa yang merupakan seorang perempuan lingkungan 30-an memasuki ruangan itu dan terus menghadap Peter dengan penuh rasa hormat. Kulit Syifa yang mulus dengan paras rupa seakan-akan orang Amerika Syarikat, berdarah kacukan Amerika Syarikat dan Melayu Malaysia, Syifa sememangnya mampu menarik perhatian sesiapa sahaja. Syifa mengangkat botol arak yang ada pada meja yang diduduki Peter dan dituangkan airnya ke dalam gelas Peter.
 “Bos, malam ni bos nak berapa round?” Syifa bertanya kepada Peter.
 “Lima round. Aku tengok hang pun aku tak tahan ni.” Peter menjawab pertanyaan Syifa.
-Syifa mendekati Peter dan kemudiannya dia duduk di atas riba Peter. Syifa menjilat pipi Peter. Peter tersenyum.
+Syifa mendekati Peter dan kemudiannya dia duduk di atas riba Peter. Syifa XXXXXX pipi Peter. Peter tersenyum.
 “Wangi sungguh badan hang ni.” Peter memuji Syifa.
 Season yang merupakan seorang lelaki berusia lapan belas dan juga anak kandung Peter memasuki ruangan itu. Season kecewa melihat bapanya, Peter, sedang berfoya-foya dengan Syifa.
 “Kalaulah emak masih ada.” Season berkata dalam hati.
@@ -122,11 +122,11 @@ Season berjalan memasuki ke sebuah kompleks membeli-belah. Dia terus ke bahagian
 “Kalau tak berlagak berani, tak boleh ke?” Dragon bertanya kepada Season untuk Season berfikir. Season tidak mempedulikan Dragon.
 “Bapak hang soh aku jaga hang. Kalau tak, aku pun tak peduli. Dah. Jom balik.”Dragon berkata kepada Season. Season tidak mengendahkan Dragon. Dragon mengangkat Season lantas membawa dia pulang ke rumah.
 Sebaik sahaja tiba di rumah, Season duduk di hadapan komputer ribanya yang berada di atas meja di dalam bilik tidurnya. Season berasa bosan dan mendengar lagu-lagu kegemarannya di situ.
-Tiba-tiba, kedengaran suara Syifa dan Peter sedang bergaduh di luar bilik Season. “Apasal you “main” bontot?!” Syifa menjerit dalam kekecewaan. “I suka. Mai sini. Sambung.” Peter berkata tanpa rasa bersalah. Kemudian, suasana menjadi sepi.
+Tiba-tiba, kedengaran suara Syifa dan Peter sedang bergaduh di luar bilik Season. “Apasal you "XXXX" XXXXXX ?!” Syifa menjerit dalam kekecewaan. “I suka. Mai sini. Sambung.” Peter berkata tanpa rasa bersalah. Kemudian, suasana menjadi sepi.
 Keesokan harinya, kereta Lamborghini Gallador megah diletakkan di parkir rumah agam itu. Season keluar rumah untuk bersenam. Peter menjerit dari tingkat atas rumah itu. “My son! Look at your car!” Peter berkata kepada Season.
-Season memandang kereta itu tanpa sebarang perasaan teruja. Dia langsung tidak berminat dengan hadiah itu. “Peduli apa aku?” Season bermonolog. Peter hairan melihat Season. Syifa dalam keadaan berkemban dengan tuala, memeluk badan Peter dari belakang. “I love you, darling.” Syifa berkata kepada Peter.
-Season bersenam selama sepuluh minit di halaman rumah. Peter dan Syifa menyedut kokain di beranda sambil menikmati jus oren yang disediakan oleh Dragon. Dragon berdiri di suatu sudut di beranda sambil memerhatikan gelagat Peter dan Syifa. Kadang-kala, Dragon memerhatikan Season. Kaca mata hitam mengaburi pandangan Dragon. Tiada siapa yang tahu apa dan siapa yang sedang Dragon perhatikan.
-“Hang tau kenapa aku “main belakang” hang?” Peter berkata kepada Syifa. Syifa memandang wajah Peter dengan perasaan marah.
+Season memandang kereta itu tanpa sebarang perasaan teruja. Dia langsung tidak berminat dengan hadiah itu. “Peduli apa aku?” Season bermonolog. Peter hairan melihat Season. Syifa dalam keadaan XXXXXXXXX dengan tuala, memeluk badan Peter dari belakang. “I love you, darling.” Syifa berkata kepada Peter.
+Season bersenam selama sepuluh minit di halaman rumah. Peter dan Syifa menyedut XXXXXX di beranda sambil menikmati jus oren yang disediakan oleh Dragon. Dragon berdiri di suatu sudut di beranda sambil memerhatikan gelagat Peter dan Syifa. Kadang-kala, Dragon memerhatikan Season. Kaca mata hitam mengaburi pandangan Dragon. Tiada siapa yang tahu apa dan siapa yang sedang Dragon perhatikan.
+“Hang tau kenapa aku “XXXX belakang” hang?” Peter berkata kepada Syifa. Syifa memandang wajah Peter dengan perasaan marah.
 “Sebab aku tak nak ada anak lagi. Macam anak haram aku yang kat bawah tu. Tak mengenal dek untung.” Peter berkata dalam keadaan marah dan khayal. Dragon sekadar memerhati dengan rasa menyampah.
 Season keluar dari rumah untuk berjoging. Season tidak dengar kata-kata Peter. Maka, dia tidak tahu apa-apa. Dragon memandang Peter. “Season keluar. Joging.” Dragon memberikan maklumat itu kepada Peter. “Ikut dia.” Peter mengarahkan Dragon mengawasi Season. Dragon melangkah pergi mengekori Season dan meninggalkan Peter dan Syifa di situ.
 “You rasa, Dragon tu boleh caya ka?” Peter bertanya kepada Syifa.
@@ -165,7 +165,7 @@ Peter duduk di ruang tamu rumah itu sambil bercakap dengan tukang tilik, Samjisa
 “Aku tak emboh duit mu.” Samjisan berkata kepada Peter sambil melangkah keluar dari situ.
 “Sok aku bank in. 50k.” Peter berkata kepada Samjisan sambil meneliti tangkal itu yang berwarna hitam seperti rantai leher. Samjisan tersenyum sambil keluar dari situ.
 
-Bab 3
+###### Bab 3
 Tiger dan Ghaz bertemu di rumah agam milik Tiger. Mereka berdiri di hadapan masing-masing. Tiger dengan rantai emasnya di leher berbatukan lambang naga di dadanya, meneliti tubuh Ghaz.
 “Takla tegap mane pon.” Tiger memerli Ghaz. Ghaz hanya memerhatikan tingkahlaku Tiger. Ghaz tidak mengendahkan kata-kata Tiger. Kemudiannya, Thye masuk ke kawasan itu bersama teh Cina.
 “Bos.. Teh Cina kurang manis.” Thye meletakkannya di atas meja Tiger.
@@ -263,6 +263,6 @@ Keesokan harinya, Ghaz pergi ke kawasan jagaan Kuda Besi dengan memakai topeng w
 “Okey, Aku dah risik semua. Line clear. Aku akan buat secepat mungkin.” Ghaz berkata kepada Thye.
 “Roger that.” Thye berkata kepada Ghaz melalui telefon. Thye menamatkan panggilan. Ghaz berasa berpuas hati dengan hasil penyamaran dan perisikannya.
 
-Bab 4
+###### Bab 4
 Ghaz sedang meneliti pelan rumah Peter. “Kalau lalu sini, memang susah. Tapi, banyak tempat persembunyian. Kalau ikut jalan kedua. Mampoi ooo.” Ghaz bermonolog.
 Ghaz berfikir sejenak sambil menggaru kepala. “Pening camni. Aku nak buat macam mana sebenaqnya?” Ghaz berkata dalam hati.
