@@ -1,14 +1,12 @@
 ---
-title: Trash | Upah
+title: Trash
 ---
 {% include back.html %}{: .m-0 }
 
 ***
 
-## Trash
-
 ```yml
-Note: Well I was tasked to cut craps out of this article.
+Note: I was asked to rewrite this article.
 ```
 
 ### NOVEL UPAHAN

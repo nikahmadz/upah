@@ -12,84 +12,23 @@ Judul: {{ site.title }}
 Tarikh Terbit: Apr 9, 2022, 1:59 PM GMT+8
 ```
 
-## {{ page.title }}
+## RINGKASAN BAB UPAHAN
 > OLEH FADHLI WAHAB
 
 ### Bab 1
-**Tiger** merupakan anak sulung kesayangan **Kuan Kong**.
-Tiger dibesarkan dengan penuh perhatian dan disiplin.
-Tiger dihantar ke sekolah yang bagus.  Dia pelajar yang cerdik dan mencapai prestasi pembelajaran yang cemerlang.
-Kuan Kong terlibat dengan kumpulan kongsi gelap **Bintang Merah** sejak muda.
-Setelah beberapa tahun di dalam kumpulan itu, Kuan Kong terpilih menjadi ketua kumpulan tersebut.
-Kumpulan **Bintang Merah** banyak menjalankan aktiviti di tengah kota raya.
-Kumpulan itu turut terlibat dengan pelbagai jenis aktiviti jenayah.
-Pengaruh Kuan Kong yang kuat membolehkan kumpulan itu bertapak kukuh.
+Sebuah kes pembunuhan telah berlaku yang melibatkan seorang ketua kumpulan kongsi gelap yang dikenali sebagai Tanda Merah di Kuala Lumpur. Ini membuatkan anak kesayangannya, Tiger, memberontak untuk mencari pembunuh-pembunuh bapanya itu. Tiger mencari jalan untuk membalas dendam.
 
 ### Bab 2
-Tiger mula meningkat dewasa.
-Kuan Kong menghantar Tiger meneruskan pengajiannya di peringkat yang lebih tinggi.
-Di sekolah, Tiger menunjukkan sikapnya yang sombong, suka membuli dan berkelahi.
-Tiger berlagak dengan kekayaan bapanya serta pencapaiannya yang baik dalam pelajaran.  Sikap yang demikian terbawa-bawa ke alam dewasa.
-Tiger yang mula berpengaruh mendapat pengikut yang semakin ramai.
-Dia sering keliling kota untuk merompak dan memeras ugut.
-Tiger berjaya menamatkan pengajian dalam bidang pengurusan dan perniagaan.
-Tiger diberikan tanggungjawab untuk menjaga segala urusniaga dan kewangan kumpulan Bintang Merah.
+Ketua Kongsi Gelap Kuda Besi iaitu Peter meraikan kejayaan mereka dalam menjatuhkan kumpulan Tanda Merah. Anak Peter iaitu Season, diberikan kemewahan kerana Peter begitu gembira dengan kejayaan itu. Tetapi, Peter mendapat ramalan bahawa dia akan binasa selepas bertemu dengan tukang tilik.
 
 ### Bab 3
-Kumpulan **Bintang Merah** menguasai kawasan tengah kota raya.
-Ketika urusniaga kumpulan itu diganggu oleh beberapa orang anggota penyiasat pihak berkuasa, Kong sering memanggil penembak profesional bergelar **Gan** untuk menghapuskan gangguan.
-Gan merupakan penembak profesional yang hebat dan disegani ahli kumpulan Bintang Merah.
-Gan yang handal bermain senjata dengan mudah menghapuskan sasarannya.
-Gan diberikan ganjaran yang lumayan.
+Tiger menjumpai seorang pembunuh upahan yang handal dari Taiping, Perak. Itulah Ghaz. Ghaz dibekalkan dengan pelbagai peralatan pembunuhan yang diperlukan di samping peralatan yang diperlukan untuk penyamaran dan perisikan oleh Tiger. Ghaz mengambil sedikit masa untuk mempersiapkan diri bagi menempuhi halangan dalam menyelesaikan tugasan ini.
 
 ### Bab 4
-Di hujung kota, muncul kumpulan baru bernama **Kuda Besi** yang diketuai oleh keluarga **Peter Season**.
-Peter mempunyai seorang anak perempuannya bernama **Jenny**.
-Kumpulan itu turut terlibat dalam aktiviti jenayah dan urusniaga haram.
-Persaingan kuasa dengan kumpulan Bintang Merah menyebabkan Peter sukar menjalankan urusniaganya.
-Selain kerugian akibat terpaksa membayar perlindungan kepada kumpulan Bintang Merah, orang-orang Peter sering kali dipukul oleh ahli kumpulan Bintang Merah apabila mereka tersalah masuk kawasan.
-Peter mahu mengambil alih kuasa dan pengaruh Bintang Merah.
-Dia berusaha meluaskan pengaruh kumpulannya dengan meramaikan bilangan ahlinya dan mempelbagaikan bentuk perniagaan.
-Peter turut memintas banyak urusniaga kumpulan Bintang Merah.
-
-### Bab 4
-Kedudukan kumpulan **Bintang Merah** mula tercabar dengan pengaruh kumpulan **Kuda Besi** yang semakin kuat.
-Kong bimbang dengan keadaan itu dan tidak mahu Kuda Besi mengambil alih.
-Dalam banyak insiden Kong terpaksa berhadapan dengan tentangan dari Kuda Besi.
-Kong yang semakin terdesak bertindak melancarkan perang saraf terhadap **Peter**.  Acap kali, Kong merendah-rendahkan dan memperkecilkan Peter dengan tujuan melemahkan pengaruhnya.
+Ghaz mengkaji siapa yang perlu dibunuh dan bagaimana cara termudah untuk membunuh sasaran itu. Ghaz juga melakukan modifikasi terhadap peralatan-peralatan pembunuhannya. Penyamaran Ghaz dalam mencari maklumat hampir diketahui kumpulan Kuda Besi. Namun, Ghaz berjaya mengelak dari rahsianya bocor.
 
 ### Bab 5
-Peter tidak berpuas hati apabila Kong serta ahli kumpulannya terus menerus memperlecehkan kumpulannya.  Peter bertambah berang apabila Kong mula menghina keluarga serta keturunannya serta memandang rendah kebolehannya memimpin.  Kerana maruah keluarga yang tercalar dan egonya yang tercabar, Peter memilih untuk menamatkan nyawa Kong. Perancangan diatur dan beberapa orang pengikutnya diarahkan untuk merusuh.  Kong dikejar lalu terbunuh.
-
-### Bab 6
-Kematian **Kuan Kong** ketua kumpulan Bintang Merah kecoh di media massa.
-**Tiger** anak sulung memberontak mahu membalas dendam terhadap kematian bapanya.
-Kuda Besi pula seronok meraikan kejayaan mereka dalam menjatuhkan kumpulan Bintang Merah yang terkenal itu.
-Peter merampas banyak harta kekayaan Kong.
-Semua perniagaan Bintang Merah diambil alih.
-Dengan kejayaan baru itu Peter dapat menghadiah anaknya dengan kemewahan.
-Kematian Kong ditangisi.
-
-### Bab 7
-Tiger mula menyiasat siapa dalang disebalik kematian bapanya.  Orang-orang yang dipanggil.
-Beberapa penemuan yang ditemui pengikutnya menunjukkan bahawa Kuda Besi bertanggungjawab.
-Peter dicari.
-
-### Bab 8
-Kerana begitu gembira Peter leka dan lalai.
-Suatu hari, Peter mendapat ramalan bahawa dia akan dibinasakan.
-
-___
-
-
-### Bab 3
-Tiger menjumpai seorang penembak upahan yang handal dari Taiping, Perak. Itulah Ghaz. Ghaz dibekalkan dengan pelbagai peralatan yang diperlukan di samping peralatan yang diperlukan untuk penyamaran dan perisikan oleh Tiger. Ghaz mengambil sedikit masa untuk mempersiapkan diri bagi menempuhi halangan dalam menyelesaikan tugasan ini.
-
-### Bab 4
-Ghaz mengkaji siapa yang perlu dibunuh dan bagaimana cara termudah untuk membunuh sasaran itu. Ghaz juga melakukan modifikasi terhadap peralatan-peralatan itu. Penyamaran Ghaz dalam mencari maklumat hampir diketahui kumpulan Kuda Besi. Namun, Ghaz berjaya mengelak dari rahsianya bocor.
-
-### Bab 5
-Ghaz sudah bersedia dengan perancangan untuk membalas dendam dengan dibekalkan maklumat dan kelengkapan serta keperluan lain oleh Tiger. Ghaz melancarkan serangan terhadap sasarannya setelah sekian lama mengkaji siapa dan bagaimana hendak menyelesaikannya.
+Ghaz sudah bersedia dengan perancangan untuk membalas dendam dengan dibekalkan maklumat dan kelengkapan pembunuhan serta keperluan lain oleh Tiger. Ghaz melancarkan serangan terhadap sasarannya setelah sekian lama mengkaji siapa dan bagaimana hendak menyelesaikannya.
 
 ### Bab 6
 Pembunuh-pembunuh bapa Tiger berjaya dibunuh oleh Ghaz. Ghaz juga berjaya membunuh Peter. Namun, Ghaz tidak membunuh Season apabila berpeluang membunuhnya kerana Season masih remaja yang tidak bersalah dalam hal ini.
@@ -200,12 +139,6 @@ Kehidupan Ghaz amat sengsara di dalam penjara kerana ahli kumpulan Tanda Merah r
 
 > TAMAT
 {: .bg-secondary.text-grey.text-center.m-0 }
-
-<div style="margin-top:4rem"></div>
-
-***
-
-[trash-chapters](./trash-chapters)
 
 <div style="margin-top:4rem"></div>
 <style>

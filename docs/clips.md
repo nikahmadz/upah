@@ -1,13 +1,13 @@
 ---
-title: Clips | Upahan
+title: Clips
 ---
 {% include back.html %}
 
 ***
 
-# Clips
+## {{ page.title }}
 
-## LOGLINE
+### LOGLINE
 - Gan yang diperangkap Tiger kerana tidak membunuh sasarannya berjaya melepaskan diri dan membuktikan dirinya tidak bersalah.
 - Gan yang mahu melepaskan dirinya dari perangkap Tiger kerana tidak membunuh sasarannya berjaya membuktikan dirinya tidak bersalah.
 
@@ -15,5 +15,4 @@ title: Clips | Upahan
 
 - Gan menuntut bela di atas kematian anak ketua kongsi gelap Kuda Besi.
 
-
-***
+<div style="margin-top:4rem"></div>
