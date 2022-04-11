@@ -142,6 +142,14 @@ Kehidupan Ghaz amat sengsara di dalam penjara kerana ahli kumpulan Tanda Merah r
 
 <div style="margin-top:4rem"></div>
 <style>
+#article {
+background: #ffffff0a;
+padding: 2rem 4rem;
+max-width: 500px;
+margin: 3rem auto;
+text-align: justify;
+box-shadow: 0 6px 10px 1px #00000075;
+}
 .markdown-body h3{ color:seagreen }
 .markdown-body p{ text-indent:4rem;margin-bottom:16px; }
 .markdown-body li p,

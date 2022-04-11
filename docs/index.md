@@ -11,17 +11,18 @@ Penulis: {{ page.author }}
 Kategori: Novel Pendek  
 Jumlah Bab: 40  
 Genre: Fiksyen Aksi  
-Tema: Pengkhianatan, Dendam dan Kejujuran  
+Tema: Pengkhianatan, Dendam, Kemanusiaan dan Kejujuran  
 Bahasa: Bahasa Malaysia  
 Tarikh Mula: Apr 10, 2022, 8:11AM, Kuala Lumpur
+Tarikh Kemaskini: Apr 11, 2022, 1:46AM, Kuala Lumpur
 Semakan: R.3.0
 ```
 
 ## PENGENALAN
-Sebuah novel fiksyen aksi bertemakan jenayah dan aktiviti kongsi gelap dalam negara.  Menceritakan kisah mengenai seorang penembak handalan profesional yang menemui jalan kebenaran setelah berjaya melepaskan diri dari perangkap ketua kumpulan kongsi gelap yang memperdayakannya.  Memaparkan unsur-unsur pengkhianatan, dendam dan kepentingan integriti serta kejujuran dalam pekerjaan.
+Sebuah novel fiksyen aksi bertemakan jenayah dan aktiviti kongsi gelap dalam negara.  Menceritakan kisah mengenai seorang penembak handalan profesional yang menemui jalan kebenaran setelah berjaya melepaskan diri dari perangkap ketua kumpulan kongsi gelap yang memperdayakannya.  Memaparkan unsur-unsur pengkhianatan, dendam peri kemanusiaan dan kepentingan integriti serta kejujuran.
 
 ## MESEJ
-Setiap pekerjaan mesti dilakukan dengan jujur dan amanah.
+Integriti bermula dengan jujur kepada diri sendiri.
 
 ## LOGLINE
 Gan mahu melepaskan diri dari perangkap kumpulan kongsi gelap lalu berhadapan dengan pelbagai insiden yang menginsafkan dirinya.  Setelah berjaya meloloskan diri dan membersihkan namanya dari rekod jenayah pihak berkuasa, Gan kembali ke jalan kebenaran.
@@ -54,10 +55,10 @@ Awal-awal lagi Tiger telah bertindak mendedahkan operasi Gan kepada **pihak berk
 Gan bertemu **Salina** buat pertama kali ketika dia sedang mengintip gerak-geri Tiger dalam usaha menghapuskannya.  Salina yang  merupakan bekas anggota perisik **APN** (Agensi Perisikan Negara), ketika itu sedang melarikan diri dari diburu agensinya.  Dia telah dipecat setelah dikhianati oleh rakan setugasnya, **Malik**.  Gan dan Salina telah sepakat untuk menyelesaikan masalah yang dihadapi mereka berdua.  Tindak-tanduk Gan dan Salina bakal menentukan nasib semua orang yang terlibat dalam cerita ini.
 
 ### KONFLIK 3
-Tiger yang semakin terdesak bertindak membocorkan setiap pergerakan Gan kepada pihak berkuasa.  Tiger mahu Gan segera tertangkap dan mati di tali gantung.  Gan berusaha gigih untuk keluar dari perhatian pihak berkuasa serta cengkaman ahli kumpulan Bintang Merah.  Gan perlu mengalihkan perhatian mereka dan menyabitkan kes kematian keluarga Peter dan konco-konconya terhadap Tiger dan kumpulan Bintang Merah.
+Tiger yang semakin terdesak bertindak membocorkan setiap pergerakan Gan kepada pihak berkuasa.  Tiger mahu Gan segera tertangkap dan mati di tali gantung.  Tiger turut bertindak keterlaluan dengan mengarahkan kumpulannya menangkap Jenny.  Gan berusaha gigih untuk keluar dari perhatian pihak berkuasa serta cengkaman ahli kumpulan Bintang Merah.  Gan perlu mengalihkan perhatian mereka dan menyabitkan kes kematian keluarga Peter dan konco-konconya terhadap Tiger dan kumpulan Bintang Merah.
 
 ### PENYELESAIAN
-Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan jenayah Bintang Merah.  Gan berjaya mendapatkan bukti-bukti perancangan jenayah kumpulan Bintang Merah.  Kumpulan kongsi gelap itu akhirnya tumpas di tangan pihak berkuasa dengan maklumat yang diberikan.  Gan yang terdesak terpaksa menyerah diri kepada pihak berkuasa dengan menjadikan maklumat-maklumat yang diperolehinya sebagai sandaran dalam membela diri.  Pihak berkuasa bersetuju untuk melindungi Gan di mahkamah sebagai pemberi maklumat yang bekerjasama.  Setelah beberapa siri perbicaraan berlangsung di mahkamah rayuan, hukuman ke atas Gan telah diringankan.  Gan yang pada awalnya dijatuhi hukuman mati telah dihukum penjara seumur hidup.
+Salina dan Jenny terbunuh ketika mereka dan Gan sedang berusaha membongkar kegiatan jenayah Tiger dan kumpulan Bintang Merah.  Gan telah memburu Tiger dan menuntut bela atas kematian Salina dan Jenny.  Gan juga telah berjaya mendapatkan bukti-bukti perancangan jenayah kumpulan Bintang Merah.  Kumpulan kongsi gelap itu akhirnya tumpas di tangan pihak berkuasa dengan maklumat yang diberikan.  Gan yang terdesak terpaksa menyerah diri kepada pihak berkuasa dengan menjadikan maklumat-maklumat yang diperolehinya sebagai sandaran dalam membela diri.  Pihak berkuasa bersetuju untuk melindungi Gan di mahkamah sebagai pemberi maklumat yang bekerjasama.  Setelah beberapa siri perbicaraan berlangsung di mahkamah rayuan, hukuman ke atas Gan telah diringankan.  Gan yang pada awalnya dijatuhi hukuman mati telah dihukum penjara seumur hidup.
 
 <div style="margin-top:4rem"></div>
 
@@ -106,6 +107,14 @@ Salina malangnya terbunuh ketika dia dan Gan sedang berusaha membongkar kegiatan
 
 <div style="margin-top:4rem"></div>
 <style>
+#article {
+background: #ffffff0a;
+padding: 2rem 4rem;
+max-width: 600px;
+margin: 3rem auto;
+text-align: justify;
+box-shadow: 0 6px 10px 1px #00000075;
+}
 .markdown-body h3{ color:seagreen }
 .markdown-body p{ text-indent:4rem;margin-bottom:16px; }
 .markdown-body li p,
