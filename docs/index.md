@@ -25,10 +25,10 @@ Sebuah novel fiksyen aksi bertemakan jenayah dan aktiviti kongsi gelap dalam neg
 Integriti bermula dengan jujur kepada diri sendiri.
 
 ## LOGLINE
-Gan mahu melepaskan diri dari perangkap kumpulan kongsi gelap lalu berhadapan dengan pelbagai insiden yang menginsafkan dirinya.  Setelah berjaya meloloskan diri dan membersihkan namanya dari rekod jenayah pihak berkuasa, Gan kembali ke jalan kebenaran.
+Gan mahu melepaskan diri dari perangkap kumpulan kongsi gelap lalu berhadapan dengan pelbagai insiden yang menginsafkan dirinya.  Setelah berjaya meloloskan diri dari cengkaman Tiger dan terlepas dari tali gantung, Gan telah insaf dan kembali ke jalan kebenaran.
 
 ## TAGLINE
-Senja belum lewat.
+Senja belum terlambat.
 
 ## SINOPSIS RINGKAS
 Kematian **Kuan Kong**, ketua kumpulan kongsi gelap **Bintang Merah** telah mencetuskan rentetan peristiwa besar yang merubah perjalanan hidup seorang penembak upahan yang terkenal bergelar **Gan**.  Kematian Kong dipercayai didalangi oleh **Peter**, ketua kumpulan **Kuda Besi** yang semakin berpengaruh di tengah kota.  **Tiger** anak Kong telah mendapatkan khidmat **Gan** bagi menuntut bela atas kematian bapanya.  Tiger meminta Gan menghapuskan seluruh ahli keluarga Peter serta konco-konco yang terlibat menyerang bapanya.  Namun, Tiger telah mengkhianati Gan.  Tiger menuduh Gan sengaja melepaskan **Jenny**, anak perempuan Peter.  Gan telah diperangkap supaya menjadi buruan **pihak berkuasa**.  Dalam usaha melepaskan diri dari perangkap Tiger, Gan telah bertemu dengan **Salina**, bekas anggota risikan **APN** yang sedang melarikan diri dari buruan agensinya.  Salina sebelum itu telah dipecat dari APN setelah rakan setugasnya, **Malik** menuduh Salina pecah amanah.  Gan dan Salina telah sepakat untuk memperbetulkan keadaan.
@@ -59,6 +59,8 @@ Tiger yang semakin terdesak bertindak membocorkan setiap pergerakan Gan kepada p
 
 ### PENYELESAIAN
 Salina dan Jenny terbunuh ketika mereka dan Gan sedang berusaha membongkar kegiatan jenayah Tiger dan kumpulan Bintang Merah.  Gan telah memburu Tiger dan menuntut bela atas kematian Salina dan Jenny.  Gan juga telah berjaya mendapatkan bukti-bukti perancangan jenayah kumpulan Bintang Merah.  Gan yang terdesak telah menyerahkan bukti-bukti tersebut kepada pihak berkuasa supaya kumpulan Bintang Merah tumpas dan Tiger tertangkap.  Dengan maklumat yang diberikan oleh Gan, kumpulan kongsi gelap itu akhirnya tumpas di tangan pihak berkuasa.  Gan berharap tindakannya itu dapat dijadikan sandaran dalam membela diri kalau-kalau dia disabitkan kesalahan.  Pihak berkuasa berterima kasih kepada Gan kerana bekerjasama dengan memberikan maklumat.  Mereka bersetuju untuk melindungi Gan di mahkamah.  Setelah beberapa siri perbicaraan berlangsung di mahkamah rayuan, hukuman ke atas Gan telah diringankan.  Gan yang pada awalnya dijatuhi hukuman mati kerana memiliki senjata api terlarang akhirnya dihukum penjara seumur hidup.  Di penjara, Gan banyak menginsafi diri dan bertaubat atas dosanya yang lalu.
+
+> Sekalipun segalanya berakhir dengan kedukaan, kematian dan terpaksa meringkuk di dalam penjara.  Namun, selagi kiamat belum tiba, dan kematian belum menjemput, selagi itulah pintu taubat masih terbuka.  Gan berharap dosa-dosanya diampuni Tuhan.  Gan percaya, Tuhan Maha Pengampun.  Sungguh! Senja belum terlambat.
 
 <div style="margin-top:4rem"></div>
 
