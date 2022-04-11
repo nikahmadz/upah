@@ -206,6 +206,7 @@ Kehidupan Ghaz amat sengsara di dalam penjara kerana ahli kumpulan Tanda Merah r
 ***
 
 [trash-chapters](./trash-chapters)
+{: .m-0 }
 
 <div style="margin-top:4rem"></div>
 <style>
